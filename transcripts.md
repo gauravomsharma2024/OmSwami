@@ -258,3 +258,227 @@ A short, ~nine-minute talk. (No richer text retrievable; only title + URL captur
 *Tone: This talk is a masterclass in his everyday-life pedagogy. Three concrete analogies (supermarket, restaurant, well-digger) carry almost the entire teaching. The "nine ladies pregnant" line is pure Swami ji — folksy, slightly cheeky, instantly memorable. Notice how he never says "the cosmos" or "manifestation" without grounding them in something kitchen-table simple.*
 
 ---
+
+## Batch 2 — Tantra Talks Official (Dasha Mahavidya / Path of Ma)
+
+> **Authorship note:** "Tantra Talks Official" is the channel created for the **Tantra Sadhana App**, an initiative by Om Swami ji's Vinaad Foundation. Some videos on this channel feature Swami ji directly; others feature **Brahmachari Parakh Om**, an initiated Tantra practitioner who is Swami ji's disciple and teaches on his behalf. Each entry below states clearly who is speaking. For the disciple's question on the **path of Ma**, this batch is the most directly relevant in the entire corpus.
+
+---
+
+### 11. Tantra Sadhana App Launch — Enter the World of the Das Mahavidya with Om Swami
+
+- **Source:** https://www.youtube.com/watch?v=p8B2ooEJh3Y
+- **Channel:** Tantra Talks Official (`@Tantratalksofficial`)
+- **Speaker:** **Om Swami ji** (live launch, May 2025 era)
+- **Type:** `[auto-captions-cleaned]` — English, very long (~10,000 words). The selections below preserve the *teaching* portions; the app-walkthrough sections are summarized in italics.
+
+**Opening invocation (verbatim):**
+> *"Um, Jai Sher [Sri Mata]… Sri Sundarya Sindhu… All glories to divine mother. First of all, I offer my obeisance to the divine in you, with whose grace we're all here right now this moment."*
+
+**On the misconceptions around Tantra:**
+> *"There are many, many misconceptions about tantra in the world out there… You can differentiate between the shat-karma in tantra — that is **maaran, uchchatan, vashikaran, sammohan, vidveshan, stambhan** — and the real tantra. The so-called Vamachara practices because of which tantra has gained a notorious kind of reputation in many parts of the world."*
+
+**Origins of Tantra — pre-Vedic, from Lord Shiva:**
+> *"Tantric practices actually existed even **before the Vedic era**. The tribes of Rudra — Lord Shiva — were the first ones to propagate tantra. In fact, all of the scriptures that he has spoken are called **Agama**. Agama is where Ma — the mother goddess — asks a question and Shiva answers. **Nigama** is where the reverse happens, where Mother is answering the question and Lord Shiva is asking. So they existed before even the Vedic practices were there."*
+
+> *"In the beginning we only had three Vedas — Rig, Sama, Yajur. There was no Atharva, because Atharva at that time was transmitted orally. All the practices of tantra as we know today — what we know today has been polluted to a great degree — but those practices emerged from Atharva. It was **Parashara Rishi** who asked Vyasa to get Atharva included as one of the main Vedas, and due to his influence at that time he was somebody who could get that done."*
+
+**The five schools of Tantra:**
+> *"Tantric practices that emerged at the time had **five different schools**:
+> - **Dakshinachar** (the right-handed path)
+> - **Vamachar** (the left-handed path)
+> - **Kaulachar**
+> - **Samayachar**
+> - **Mishrachar** (the mixed path, which emerged much later and was taken up particularly in Bihar, Uttar Pradesh and West Bengal)."*
+
+**How Tantra was distorted — the John Woodroffe and Pierre Bernard story:**
+> *"About 150 years ago two significant events happened. One was **Sir John Woodroffe**, a magistrate and judge in India — a British man — who, under the pen-name **Arthur Avalon**, wrote *The Serpent Power* and *Shakti and Shakta*. He took Tantra to the West and, quite remarkably, spoke about the pristine nature of Tantra as opposed to the popular tantric practices. Until then, in the West, tantra was seen as hedonistic, an obscure set of occult practices."*
+
+> *"Around 1905 there was another American occultist — **Pierre Bernard** I think — who was mostly interested in the sexual aspect of tantra. Now really, there was no sexual aspect as such. There was the concept of **panchamakara**: **matsya** (fish), **madira** (wine), **mamsa** (meat), **mudra** (handlocks, parched grains, or bodily poses) and **maithuna**. The Americans took a shine to this and eventually took out all the rituals — no chanting, no invocation, no divinity — and it became only about sexual and sensual experiences."*
+
+**The Tibetan transmission and how Mahachina-krama was born:**
+> *"Around 1500 years ago, our scriptures went overseas. Buddhist monks were the first to take them, notably to Tibet. There it got mixed with what they called the **Bön religion** — one of the original shamanic religions of Tibet. They used to worship a goddess called **Tara**. From there emerged a practice called **Mahachina-krama** — the original name was **Mahachina-Tara-krama** — which involved a female and a male. This became very popular. So when those shamanic practices came back to India, in all the states sharing a border with Tibet — Sikkim, Kashmir, Himachal Pradesh, Arunachal Pradesh — tantra took on a different form."*
+
+**Why fearlessness is essential, and why he tells the truth even when it's unpopular:**
+> *"My job is to put the truth out there for you, and the rest is up to you — to believe or not to believe, to take it or leave it. That's entirely your call. It's not my prerogative. It's yours."*
+
+> *"I always say: **ask a question at your own peril, because you will get the truth — and the truth may not always be rosy.**"*
+
+**The Dasha Mahavidyas, listed by his own hand:**
+> *"This app is to awaken the 10 Mahavidyas. So there is **Ma Kali, Ma Tara, Ma Tripurasundari, Ma Bhuvaneshwari** — out of love you can just call them Bhuvaneshwari but **it is always Ma** — and then **Ma Bhairavi**. Each mother goddess, each form of hers, has a world of her own that you will have to experience… then **Ma Chinnamasta**, then **Ma Dhumavati**, **Ma Bagalamukhi**, **Ma Matangi**, and **Ma Kamala** — the last one."*
+
+**The sadhana method (universal across all Mahavidyas):**
+> *"There are **two preparatory rituals** before you can unlock the main ritual: **chanting (japa)** and **fire offerings (yagna)**. You have to do japa and yagna for at least **11 days** before you can start the main ritual. The main ritual is for **21 days** or **40 days** depending on which sadhana. For example, in **Matripurasundari sadhana** — the **Sri Yantra sadhana** — it's a minimum of 40 days."*
+
+> *"You have to start with **Ma Kali**. You cannot start with Ma Tripurasundari. As explained right in the beginning — **Mahakali first**. Remember that."*
+
+**Why one full cycle of 33 days matters before the next world opens:**
+> *"Once you've done one full cycle — minimum of 33 days — the next world will unlock for you. And if you really like that ritual, you can come back any time and just do the ritual or do the whole world once again. But you need to go through one full cycle before the new world will unlock."*
+
+**The full Sri Vidya path, and why he refuses shortcuts:**
+> *"To complete one cycle of all 10 worlds will take you roughly **423 days**… once you've done the whole 10 Mahavidyas, you will then be required to do **10 times Mahatripurasundari's cycle again**, which will take roughly 360 days. So 423 + 360 is **783 days** — roughly **2 years and 2 months** — before you are really doing the full-on Sri Vidya sadhana."*
+
+> *"Could I have hastened the process? I have expedited it as much as possible. **You see, I told you in the very beginning — I do not offer shortcuts.** If there are other people who are offering you better things faster, please feel free to go there and do that. I do not know what that is like. I only offer you the real thing and the highest good and the genuine worship of mother goddess. Because I don't dabble with the lower forms of energy or anything like that."*
+
+**Q&A (paraphrased in his own framing, near the end of the launch):**
+
+- *On initiation:* **"Initiation is not required. Anybody from any age can do it. I speak from experience. I started Tantra so early on in my life — then why can't you? This is the highest form."**
+- *On who can practice:* **"Male, female, children, householders — even householders who are not good at holding down their houses. Whether you are menstruating or not, whether you have eaten or not, whether you eat non-vegetarian, vegetarian, pescatarian, egotarian, whatever you are — you can do these sadhanas. It is all part of *divya bhava*, the highest form of worship, because you are fully immersed in it. You are performing manasic worship — mental chanting."**
+- *On muhurta:* **"There is no specific muhurta. You can start any time."**
+- *On stopping alcohol or smoking for sadhana:* **"Absolutely no need to stop anything from a sadhana perspective. Of course it's good not to drink or smoke for your health — but not from a sadhana perspective. You can start any day."**
+- *On being a disciple of another guru:* **"Absolutely you can. You can do Sri Vidya with this. I don't see why not."**
+- *On menstruation breaks:* **"You can take a break if you want — but try to stick to the routine, because that is how you train the mind and consciousness. Constantly keep doing the same thing over and over and over again — day in, day out — each day, every day, same time. And your mind starts to shift; it starts to become very beautiful."**
+- *On fear:* **"You must never ever have any fear of anything. It's very important to be fearless in life. *Can a mother ever harm you?*"**
+
+**Closing:**
+> *"I hope and I believe that you benefit from this greatly, and that the grace of divine mother continues to cascade down your consciousness and your life, and you continue to see the beauty of life. Go and use this and do something beautiful with your life. I've taken too much of your time. On that note, I will take your leave. Thank you very much again. We'll just do a closing chant."*
+
+*Tone: This is Swami ji at the lectern as a scholar-tantric. He opens with a Sri Sukta-style invocation, then moves into history with names, dates, and citations (Woodroffe, Bernard, Parashara Rishi, Vyasa) — and at every step grounds it in the listener's own experience. The phrase **"it is always Ma"** is unmistakably his — affectionate, firm, and protective of the deity's dignity. His Q&A style is generous and almost playful ("egotarian, whatever you are"), but he also draws hard lines: no shortcuts, no fear, no fake muhurtas. He calls Tantra "the highest form of worship" not as boast but as encouragement: anyone can do it. The closing — "Can a mother ever harm you?" — is the one line you most want to remember from this entire batch.*
+
+---
+
+### 12. Bhakti vs Tantra — The Journey from Devotion to Divinity
+
+- **Source:** https://www.youtube.com/watch?v=K2rGI9CaHNM
+- **Channel:** Tantra Talks Official
+- **Speaker:** **Om Swami ji**
+- **Type:** `[auto-captions-cleaned]` — English, full short transcript
+
+**The full teaching (verbatim, very short and pithy):**
+
+> *"What is the difference between **bhakti** and **tantra**? Tantra is a form of bhakti. Tantra is a type of bhakti."*
+
+> *"In **bhakti** you believe: I am the embodied soul, and He — or She, which is just a matter of saying, there is no difference — is the Supreme Soul. There is no match between the two. I will forever remain polluted, and He, or Goddess She, will forever remain unpolluted — most pure — **paramshuddha**, most awake and most pure, **paramabuddha**, **nitya** — forever pure, forever awake, enlightened, forever pure. Just like you cannot dissolve a rock in milk or water, bhakti says: **I am too impure to be dissolved. So I am going to serve God.**"*
+
+> *"Bhakti is purely about service. I am going to serve, and I'm going to serve as a friend. I'm going to serve as a servant. I'm going to serve like a servant would serve his or her master. That's bhakti in a nutshell. True bhakti will always keep you humble, will keep you grounded, will keep you centered, will keep you real. It would give you peace, because you believe: **I don't have to do everything myself. There is a Master who is looking after me.**"*
+
+> *"**Tantra**, on the other hand, says: no question about it that You are supreme, that You are very superior, that You are very special — but I am **made from You**. I am a part of You. If I am a part of You, then it must be possible, by definition, for me to rise to such a level of purity someday, some point of time in my life, when I will be able to **merge in You**."*
+
+> *"But — I am not interested in merging after death. I don't care about any liberation, salvation, any moksha, any nirvana **after I am dead**. I very much would like it when I am alive. Therefore, I am going to keep calling out to You — rising above my base fears, my primal fears and primal emotions of ignorance, lust, hatred, jealousy, envy, ego, anger, and so on. I'm going to keep purifying myself and keep calling out to You till one such day that **You show Yourself to me. And the moment I see You — I will become You.**"*
+
+> *"That's the fundamental difference between bhakti and tantra."*
+
+*Tone: This may be the single most concise and powerful definition of Tantra in the entire corpus. He gives bhakti its full dignity first — "true bhakti will always keep you humble" — and then introduces Tantra not as a rebellion against bhakti, but as a more impatient form of the same love: "I don't want this after I am dead. I want this now." The repeated rhythm "I'm going to keep purifying myself and keep calling out to You" lands like a vow.*
+
+---
+
+### 13. This Is Why You Should Never Call Her Just 'Kali' — The Real Truth
+
+- **Source:** https://www.youtube.com/watch?v=nCUBUh6A31s
+- **Channel:** Tantra Talks Official
+- **Speaker:** **Om Swami ji**
+- **Type:** `[auto-captions-cleaned]` — English, short transcript
+
+**Full teaching (verbatim):**
+
+> *"There is something which is very important to mention here when we talk about tantra. Please understand that the **10 Mahavidyas can only be invoked as Mother Goddess**. So Kali is not just Kali. **Kali is Ma Kali.** If somebody is referring to goddesses like Kali, Tara, this and that and the other as if they're like friends — that is not the way to go."*
+
+> *"Although the ideal, the highest goal of tantra, is to **become one with your object of worship**. So you become one with your deity. If you become one with your object of worship, then you embody the same qualities as your object of worship. That is where it differs from a pure bhakti yoga, or *dvaita*, which says: 'I am jivatma, You are paramatma. I can never be You. I am not trying to be You — but I am just happy You are there.'"*
+
+> *"But in tantra we say: **let me purify myself to such a degree, break all my conditioning in such a fashion, that — oh mother goddess — You reside in me.**"*
+
+*Tone: Two non-negotiables in one short talk — (1) the address is always "Ma," never just the bare name; (2) the goal is not merely to behold Her, but to embody Her. The shift from "I am happy You are there" (bhakti) to "You reside in me" (tantra) is precisely the move he keeps describing.*
+
+---
+
+### 14. Tantra Sadhana — Awaken the Das Mahavidyas (App Launch Promo)
+
+- **Source:** https://www.youtube.com/watch?v=iJ5ssgPPCeM
+- **Channel:** Tantra Talks Official
+- **Speaker:** Promotional voiceover (likely Brahmachari Parakh Om / app voiceover; not Swami ji personally) — but the content is from the lineage's teaching.
+- **Type:** `[auto-captions-cleaned]` — English, short
+
+**Verbatim:**
+> *"The **Devi Bhagavata Purana** calls the Divine Mother as **Mahavidya** — the supreme knowledge. She is the mother of the universe, existing even before the beginning of time. She appears to her devotees in **10 forms** called the **Dasha Mahavidyas**. These are her tantric forms, each symbolizing an aspect of her energy."*
+
+> *"Their worship was once performed in secret — in jungles, cremation grounds, and the wilderness of mother nature. A lack of proper spiritual guidance and physical harm were real possibilities for the seeker, as they navigated their external and internal worlds. But not anymore. Step into the digital realm of the Dasha Mahavidyas. Unlock awakened mantras, access sacred fire offerings, and invoke each Mahavidya with a dedicated spiritual practice."*
+
+> *"Reveal the wisdom, devotion, and supreme spiritual consciousness that has always existed in you. For every Mahavidya you awaken, you will be granted a boon. Walk the path of Mahavidya Tantra. Its esoteric practices will undo the chains that bind your mind and fill you with untold devotion and bliss. Peace, wealth, happiness and freedom can be yours. **All you need is sincerity.** Break free and awaken the divine goddess in all her glory."*
+
+*Tone: This is the lineage's own framing of the path: secrecy → accessibility, jungles → app, the 10 Mahavidyas as 10 facets of the one Mother. The single criterion offered is **sincerity**.*
+
+---
+
+### 15. The Tantra Sadhana App Is Not a Game — It's a Portal
+
+- **Source:** https://www.youtube.com/watch?v=qo6hxtu9HHA
+- **Channel:** Tantra Talks Official
+- **Speaker:** **Om Swami ji**
+- **Type:** `[auto-captions-cleaned]` — English, short
+
+**Verbatim:**
+> *"It may seem a little cumbersome to you using this app, but bear in mind — **there is a method to this madness**. There is a reason I've created this app the way it is done. And I can share with you that reason. It's not like I have to keep it a mystery."*
+
+> *"The primary reason is — **if you're not prepared to do self-exploration, if you're not prepared to work for your sadhana, then you are also not ready to be initiated into it. Then you're also not ready to actually do it.** So even though it may seem like a game — please, even for a moment, don't think it's a game."*
+
+> *"The reason it may look like a game is because I wanted you to experience the immersive nature of each world where you'll be performing that sadhana. I'd like you to **work a little**. I'd like you to enjoy the journey a little. It would benefit you from experiencing that world and doing the things you ought to be doing, so that when you go and perform the main ritual of each world, **you are truly in it. You are truly devoted.**"*
+
+> *"There is no way to hasten the process that we have created in here. So you're always going to start your journey from **Ma Kali**. That's the first Mahavidya."*
+
+*Tone: Same hand, different texture — here he is explaining a design decision, but the design itself encodes his sadhana philosophy: work for what you receive, no shortcuts, immersion before ritual, Ma Kali first. The line **"if you're not prepared to do self-exploration… then you are also not ready to actually do it"** is a clean restatement of the *purity of discipline* teaching from Batch 1, applied here to tantra.*
+
+---
+
+### 16. Tantra Circle — Gupt Navratri (Hindi)
+
+- **Source:** https://www.youtube.com/watch?v=O5nX0gnY_y4
+- **Channel:** Tantra Talks Official
+- **Date:** 2025-06-16
+- **Speaker:** **Brahmachari Parakh Om** (disciple, not Swami ji)
+- **Type:** `[auto-captions-cleaned]` — Hindi
+
+**Description (verbatim from page):**
+> *"Save the date, Ma is coming! Join this special 10-day online event — Perform Ma Kali Sadhana and learn the divine path of the Das Mahavidyas during **Gupt Navratri**, the most spiritually charged time of the year for Tantra Sadhana. Guided By: Brahmachari Parakh Om (an initiated Tantra practitioner). Dates: 24th June to 3rd July. Daily at 8 PM. Live Stream. Free | Online."*
+
+**Captions (Hindi, paraphrased):**
+> *"विश्व का सबसे पहला तंत्र सर्कल लॉन्च हो चुका है। जहां हमारे तंत्र एक्सपर्ट्स के द्वारा हैंड-होल्डिंग किया जाएगा, जिससे तंत्र की साधना करने के लिए गाइडेंस मिल पाए। यहां मां काली की साधना से लेकर सभी प्रकार की तंत्र साधनाएं कराई जाएंगी। 13 साल के बच्चे से लेकर हाउसवाइफ, बिजनेसमैन, कंटेंट क्रिएटर्स, डॉक्टर्स, इंजीनियर — सभी प्रकार के प्रोफेशनल्स तंत्र साधना करते हैं। तंत्र सर्कल एक ऐसा इनिशिएटिव है जो पूरे विश्व भर से सभी एज ग्रुप्स के साधकों को एक प्लेटफार्म पर लाने का काम करता है।"*
+
+> "The world's first Tantra Circle has been launched — where our Tantra experts will provide hand-holding guidance for performing Tantra sadhana. Here, from Ma Kali sadhana to all forms of Tantra sadhana will be conducted. From 13-year-old children to housewives, businessmen, content creators, doctors, engineers — all kinds of professionals do Tantra sadhana. Tantra Circle is an initiative that brings sadhakas from all age groups across the world to one platform."
+
+*Tone: This is the disciple's voice, not Swami ji's — but the framing he carries forward is identical to Swami ji's: Tantra is for everyone, age and profession do not matter, Ma Kali first.*
+
+---
+
+### 17. Unlocking the Das Mahavidyas — Om Swami Reveals the Path
+
+- **Source:** https://www.youtube.com/watch?v=-upBe1qZbEs
+- **Channel:** Tantra Talks Official
+- **Speaker:** Om Swami ji (per title)
+- **Type:** `[summary-from-description]` — auto-captions unavailable
+
+Title indicates a Swami ji talk on the same Das Mahavidya material as #11. No richer text retrievable in this batch.
+
+---
+
+### 18. Gupt Navratri 2025 — The Hidden Power That Burns Karmic Cycles
+
+- **Source:** https://www.youtube.com/watch?v=PKPMkUqs_rY
+- **Channel:** Tantra Talks Official
+- **Speaker:** Brahmachari Parakh Om (per title)
+- **Type:** `[summary-from-description]` — auto-captions unavailable
+
+Disciple-led teaching on Gupt Navratri 2025 — the second of two annual Gupt Navratris in the Hindu calendar (Magha and Ashadha), traditionally considered the most potent time of year for Tantra sadhana of the 10 Mahavidyas.
+
+---
+
+### 19. Join Maa Kali's Gupt Navratri Sadhana — 10-Day Online Journey
+
+- **Source:** https://www.youtube.com/watch?v=3GU_IDy6l_o
+- **Channel:** Tantra Talks Official
+- **Speaker:** Brahmachari Parakh Om
+- **Type:** `[summary-from-description]` — auto-captions unavailable
+
+Announcement/invitation video for the 10-day live Ma Kali sadhana during Gupt Navratri 2025. Same event as catalogued in #16.
+
+---
+
+### 20. Kamakhya Ambubachi Mela 2025 — When the Divine Mother Unleashes Her Full Power
+
+- **Source:** https://www.youtube.com/watch?v=oTT0pesJ-Ok
+- **Channel:** Tantra Talks Official
+- **Type:** `[summary-from-description]` — auto-captions unavailable
+
+Description points to the **Ambubachi Mela** at the **Kamakhya temple** in Assam — the annual festival during the Divine Mother's menstrual cycle, when the doors to the inner sanctum are closed for three days and then reopened. Considered the single most potent window in the tantric calendar for Devi worship. (No teaching content retrievable in this batch; cataloged for future revisit.)
+
+---
+

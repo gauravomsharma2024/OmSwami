@@ -41,8 +41,18 @@
 
 ## Podcasts / Talks — Tantra Talks Official (YouTube)
 
-| # | Date | Title | Status | URL |
-|---|------|-------|--------|-----|
+| # | Date | Title | Speaker | Status | URL |
+|---|------|-------|---------|--------|-----|
+| 1 | 2025 | Tantra Sadhana App Launch — Enter the World of the Das Mahavidya | Om Swami | ✅ (full transcript) | https://www.youtube.com/watch?v=p8B2ooEJh3Y |
+| 2 | 2025 | Bhakti vs Tantra — Journey from Devotion to Divinity | Om Swami | ✅ (full transcript) | https://www.youtube.com/watch?v=K2rGI9CaHNM |
+| 3 | 2025 | This Is Why You Should Never Call Her Just 'Kali' | Om Swami | ✅ (full transcript) | https://www.youtube.com/watch?v=nCUBUh6A31s |
+| 4 | 2025 | Tantra Sadhana — Awaken the Das Mahavidyas (Promo) | Voiceover | ✅ (full transcript) | https://www.youtube.com/watch?v=iJ5ssgPPCeM |
+| 5 | 2025 | The Tantra Sadhana App Is Not a Game — Portal to Mahavidyas | Om Swami | ✅ (full transcript) | https://www.youtube.com/watch?v=qo6hxtu9HHA |
+| 6 | 2025-06-16 | Join Tantra Circle This Gupt Navratri (Hindi) | Br. Parakh Om | ✅ (full Hindi transcript) | https://www.youtube.com/watch?v=O5nX0gnY_y4 |
+| 7 | — | Unlocking the Das Mahavidyas — Om Swami Reveals the Path | Om Swami | ✅ (title only — no captions) | https://www.youtube.com/watch?v=-upBe1qZbEs |
+| 8 | 2025 | Gupt Navratri 2025: The Hidden Power | Br. Parakh Om | ✅ (title only — no captions) | https://www.youtube.com/watch?v=PKPMkUqs_rY |
+| 9 | 2025 | Join Maa Kali's Gupt Navratri Sadhana — 10-Day Journey | Br. Parakh Om | ✅ (title only — no captions) | https://www.youtube.com/watch?v=3GU_IDy6l_o |
+| 10 | 2025 | Kamakhya Ambubachi Mela 2025 | — | ✅ (title only — no captions) | https://www.youtube.com/watch?v=oTT0pesJ-Ok |
 
 ## Books by Om Swami ji
 
@@ -72,3 +82,4 @@
 | Batch | Date processed | Sources processed | Distillation entry |
 |-------|----------------|-------------------|---------------------|
 | 1 | 2026-05-14 | 10 from Om Swami TV — Bhaj Govindam Hindi 1–6, The Whole Nine Minutes, Purity, Relationships, What Do You Want | [Batch 1 — 2026-05-14](./distillation.md#batch-1--2026-05-14) |
+| 2 | 2026-05-14 | 10 from Tantra Talks Official — Tantra App Launch, Bhakti vs Tantra, "Never Just Kali", Mahavidyas promo, "Not a Game" Portal, Tantra Circle, Unlocking Das Mahavidyas, Gupt Navratri 2025, Ma Kali Sadhana, Kamakhya Ambubachi | [Batch 2 — 2026-05-14](./distillation.md#batch-2--2026-05-14) |

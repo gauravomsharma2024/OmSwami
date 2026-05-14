@@ -93,3 +93,87 @@ Across these 10 sources, the practices he prescribes (or assumes) are:
 ---
 
 
+
+## Batch 2 — 2026-05-14
+
+**Sources processed:** 10 videos from Tantra Talks Official (`@Tantratalksofficial`), the channel of Swami ji's *Tantra Sadhana App* / Vinaad Foundation.
+
+- The full Tantra Sadhana App Launch talk by Swami ji (~10,000 words) — *the most substantive teaching in the corpus so far*
+- *Bhakti vs Tantra* (full transcript by Swami ji)
+- *Never Call Her Just 'Kali' — She is Ma Kali* (full transcript by Swami ji)
+- *The Tantra Sadhana App Is Not a Game* (full transcript by Swami ji)
+- *Awaken the Das Mahavidyas* — promotional voiceover
+- 4 videos with title/description only (no captions)
+- 1 video by Brahmachari Parakh Om (disciple) in Hindi
+
+**Authorship caveat:** This batch contains content by *two* speakers in Swami ji's lineage — Swami ji himself, and his disciple Brahmachari Parakh Om. Disciple-only entries are noted; everything in this distillation is from Swami ji's own words unless explicitly attributed.
+
+### 🌼 Core teachings & recurring themes
+
+- **Tantra is a form of bhakti, not its opposite.** *"Tantra is a type of bhakti."* Bhakti says: I am too impure to be dissolved in You, so I will serve You. Tantra says: I am made from You, so it must be possible to merge in You — and I do not want it after death. I want it now. The difference is impatience, not direction.
+- **The goal of Tantra: to *become* the deity, not merely to behold her.** *"Let me purify myself to such a degree, break all my conditioning in such a fashion, that — oh Mother Goddess — You reside in me."* This is the structural distinction from dvaita-bhakti, which preserves the seer–seen gap. Tantra dissolves it.
+- **It is always Ma.** The 10 Mahavidyas can only be invoked as **Mother Goddess** — never as bare names, never as "friends." Kali is Ma Kali. Tara is Ma Tara. Tripurasundari is Ma Tripurasundari. The honorific is non-negotiable.
+- **The 10 Mahavidyas, in his order:** Ma Kali, Ma Tara, Ma Tripurasundari, Ma Bhuvaneshwari, Ma Bhairavi, Ma Chinnamasta, Ma Dhumavati, Ma Bagalamukhi, Ma Matangi, Ma Kamala.
+- **Begin with Ma Kali. Always.** "You cannot start with Ma Tripurasundari. Mahakali first. Remember that." This is structural, not preferential.
+- **Tantra is pre-Vedic.** It comes from the tribes of Rudra (Lord Shiva). *Agama* = Ma asks, Shiva answers. *Nigama* = Shiva asks, Ma answers. The tantric practices we know today were absorbed into Atharva Veda only later, at Parashara Rishi's instance, via Vyasa.
+- **Five schools of Tantra exist:** Dakshinachara, Vamachara, Kaulachara, Samayachara, Mishrachara. He names them but does not advocate one over another.
+- **What Tantra is NOT:** It is not the *shat-karma* (maaran, uchchatan, vashikaran, sammohan, vidveshan, stambhan) — those are real but peripheral. It is not the sexualized "neo-tantra" of Pierre Bernard, which stripped out the rituals and kept only the panchamakara's last element. It is not the obscure-occult caricature that 19th-century Westerners encountered. *"I don't dabble with the lower forms of energy or anything like that."*
+- **Initiation is not required, gurus do not have to be exclusive, muhurta does not have to be calculated, diet is not regulated, menstruation is not a barrier.** Almost every conventional gatekeeping rule he sets aside. *"All you need is sincerity."*
+- **Stick to the routine.** *"That is how you train the mind and consciousness — constantly keep doing the same thing over and over and over again, day in, day out, each day, every day, same time. And your mind starts to shift; it starts to become very beautiful."* (Same teaching as Batch 1's discipline-that-doesn't-bargain, applied to tantra.)
+- **There are no shortcuts.** A full Dasha Mahavidya cycle is **423 days**. The full Sri Vidya cycle that follows is another **360 days**. Roughly **2 years and 2 months** of sustained practice before the full Sri Vidya sadhana truly begins. *"If there are other people who are offering you better things faster, please feel free to go there and do that. I do not know what that is like."*
+- **Fearlessness is essential, because the Mother cannot harm you.** *"You must never ever have any fear of anything. It's very important to be fearless in life. Can a mother ever harm you?"* — this last line is among the most quotable in the entire corpus.
+- **Sincerity is the single criterion.** Repeated explicitly in the app's own promotional voiceover, and implicit throughout Swami ji's own talks: *"All you need is sincerity."*
+
+### 🗣️ Tone, voice, and style
+
+- **New opening invocation seen in this batch:** he begins the App Launch by invoking the Divine Mother first (*Sri Mata, Sri Sundarya Sindhu…*), and then his standard salutation: *"All glories to divine mother. First of all, I offer my obeisance to the divine in you, with whose grace we're all here right now this moment."* The Divine-Mother layer precedes the disciple-greeting layer.
+- **He gives bhakti its full dignity *first*, then introduces tantra.** Notice he never says bhakti is lesser. He says: *"True bhakti will always keep you humble… it will give you peace, because you believe: I don't have to do everything myself. There is a Master who is looking after me."* Only after this full credit does he distinguish tantra.
+- **"It is always Ma."** Said affectionately, almost protectively. Not as correction but as care — for the deity's dignity, and for the sadhaka's relationship with Her.
+- **Scholarly when needed.** This batch shows a side not present in Batch 1: precise names, dates, citations. Parashara Rishi, Vyasa, Sir John Woodroffe (a.k.a. Arthur Avalon), Pierre Bernard, ~1905, ~1500 years ago, the Bön religion of Tibet, Mahachina-Tara-krama. He is willing to do history when history is what is required.
+- **Playful in Q&A.** "Householders who are not good at holding down their houses." "Pescatarian, egotarian, whatever you are." The humor is gentle and lands without ever undermining the message.
+- **Hard lines, stated softly.** *"I do not offer shortcuts."* *"If there are other people offering you better things faster, please feel free to go there."* *"My job is to put the truth out there for you, and the rest is up to you."* He does not argue or defend — he states and lets the listener choose.
+- **The signature "ask at your own peril":** *"I always say — ask a question at your own peril, because you will get the truth, and the truth may not always be rosy."*
+- **Closing of the App Launch:** *"I hope and I believe that you benefit from this greatly, and that the grace of divine mother continues to cascade down your consciousness and your life… Go and do something beautiful with your life. I've taken too much of your time. On that note, I will take your leave."* Followed by a closing chant.
+- **The most quotable single line in the batch:** *"Can a mother ever harm you?"* — a one-sentence dismissal of every fear-based objection to Tantra sadhana.
+
+### 🧘 Practices & sadhana
+
+This batch yields, for the first time, **a concrete, structured sadhana prescription** for the path of Ma. It is offered by Swami ji himself.
+
+- **For every Mahavidya, the protocol is the same:**
+  - **11 days of preparatory rituals**: japa (chanting) + yagna (fire offerings). The mantra and the offerings are mantra-specific; for Ma Kali, the prerequisite is 1,008 chants + 11 yagnas across those 11 days.
+  - **21 or 40 days of main ritual** (40 for Ma Tripurasundari / Sri Yantra; 21 for most others).
+  - **One full cycle = 33 days minimum** (11 + 21 + 1 day of main-ritual unlock).
+  - The next Mahavidya's world only opens *after* the previous cycle is complete.
+- **The full path, in his words:**
+  - 10 Mahavidyas × ~42 days each ≈ **423 days**.
+  - Then Ma Tripurasundari × 10 cycles ≈ **360 days**.
+  - **Total: ~783 days** before the full Sri Vidya sadhana truly begins.
+  - And only *after* all 10 Mahavidyas and all 10 Tripurasundari cycles does **Panchadashi → Shodashi → Maha-Shodashi** become appropriate, with Bala Tripurasundari and the 15 Nityas (Kameshwari through Maha-Nitya — the 16th being Mother Divine herself, Kameshwari, in her highest aspect).
+- **Order is non-negotiable:** **Ma Kali always first.** No exceptions, regardless of which Mahavidya the sadhaka feels drawn to.
+- **Routine discipline > muhurta:** Same time, same place, every day. The training of consciousness happens in the *consistency*, not in any astrologically auspicious moment.
+- **No gatekeeping:**
+  - No formal initiation required.
+  - Any age (he himself started "very early on").
+  - Householders welcome. Children welcome.
+  - All diets accepted.
+  - Menstruation does not bar practice (and a break is permitted but not preferred).
+  - No specific muhurta — start any day.
+  - Other guru-disciple relationships are not in conflict.
+- **Manasic worship is "the highest form of worship" — *divya bhava*.** Mental chanting, full immersion. Not external pomp.
+- **Two preparatory disciplines underpin everything: japa and yagna.** Even the digital app preserves them as the gateway; they are non-skippable.
+- **The Tantric posture toward the deity:** *"I am going to keep purifying myself and keep calling out to You till one such day that You show Yourself to me. And the moment I see You — I will become You."* This is the *bhavana* (inner stance) the sadhaka holds throughout.
+- **Fearlessness is itself a practice.** *"You must never ever have any fear of anything."* In Tantra, fear of the deity contradicts the deity's own nature as Mother.
+- **Sri Yantra worship** sits at the apex of the path, after the 10 Mahavidyas are all completed.
+
+### 🪔 Stories & analogies
+
+- **The rock that cannot dissolve in milk** — bhakti's self-understanding. *"Just like you cannot dissolve a rock in milk or water, bhakti says: I am too impure to be dissolved. So I am going to serve God."*
+- **Sir John Woodroffe (Arthur Avalon), ~1880s–1900s** — the British judge in India who, under a pen-name, rescued Tantra's reputation in the West with *The Serpent Power* and *Shakti and Shakta*, by writing about its pristine philosophy rather than its sensationalized practices.
+- **Pierre Bernard, ~1905** — the American occultist who reduced Tantra to its sexual aspect (the fifth element of panchamakara), stripping out chanting, invocation, and divinity. Cautionary example of how a tradition is hollowed out when its rituals are removed.
+- **The Bön religion of Tibet + Goddess Tara** — how the Buddhist transmission to Tibet mixed Indian Tantra with Tibetan shamanism, producing *Mahachina-Tara-krama*, which then returned to India via the border states (Sikkim, Kashmir, Himachal, Arunachal) and altered tantric practice there.
+- **Fusion music vs. pure raga** — his analogy for how Tantra has been "polluted" today: just as mainstream Indian music is no longer pure raga (it has Western chords, harmonization, modes), tantra today is no longer the pre-Vedic original — it has been mixed with shat-karma, shamanism, hedonism. The pristine form still exists; one must seek it.
+- **The ants/flies/bees that collect all day** (carried forward from Batch 1) — applied now to seekers who collect mantras, gurus, techniques, but never sit and dig.
+- **Mahachina-Tara-krama** — the name itself is a teaching: even after centuries of distortion, the original (*Tara, Ma*) is recoverable if you trace the etymology.
+
+---
