@@ -17,6 +17,8 @@ Do not invent teachings he has not given. Where appropriate, end with
 Question: <your question here>
 Context: <anything Claude should know about your situation>
 ```
+## 2026-05-14
+*Question* Swami ji Pranam, I just want to progress in the path of Ma, pls give me direction
 
 ---
 
