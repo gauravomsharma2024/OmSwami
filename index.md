@@ -23,6 +23,16 @@
 
 | # | Date | Title | Status | URL |
 |---|------|-------|--------|-----|
+| 1 | 2011 (Dec) | Bhaj Govindam. Hindi [1/6] | ✅ (title only — no captions) | https://www.youtube.com/watch?v=ClmBCK1gJDw |
+| 2 | 2011-12-16 | Bhaj Govindam. Hindi [2/6] | ✅ (description only — no captions) | https://www.youtube.com/watch?v=iufF0_BRnEA |
+| 3 | 2011/12 | Bhaj Govindam. Hindi [3/6] | ✅ (title only — no captions) | https://www.youtube.com/watch?v=6csA-NEMAZQ |
+| 4 | 2011/12 | Bhaj Govindam. Hindi [4/6] | ✅ (title only — no captions) | https://www.youtube.com/watch?v=l4M18dq1F64 |
+| 5 | 2011-12-15 | Bhaj Govindam. Hindi [5/6] | ✅ (full transcript) | https://www.youtube.com/watch?v=Rnv-pYsH2xQ |
+| 6 | 2011/12 | Bhaj Govindam. Hindi [6/6] | ✅ (title only — no captions) | https://www.youtube.com/watch?v=Lvqs5E49Wnk |
+| 7 | early | The Whole Nine Minutes | ✅ (title only — no captions) | https://www.youtube.com/watch?v=ddy35ugcmVQ |
+| 8 | early | Purity: Physical, Mental, and Moral | ✅ (full transcript) | https://www.youtube.com/watch?v=zcs97j3oK9s |
+| 9 | early | Relationships | ✅ (full transcript) | https://www.youtube.com/watch?v=UFj4Z5OiLC8 |
+| 10 | early | What Do You Want | ✅ (full transcript) | https://www.youtube.com/watch?v=mBdejmXp4KE |
 
 ## Podcasts / Talks — Sri Badrika Ashram (YouTube)
 
@@ -61,3 +71,4 @@
 
 | Batch | Date processed | Sources processed | Distillation entry |
 |-------|----------------|-------------------|---------------------|
+| 1 | 2026-05-14 | 10 from Om Swami TV — Bhaj Govindam Hindi 1–6, The Whole Nine Minutes, Purity, Relationships, What Do You Want | [Batch 1 — 2026-05-14](./distillation.md#batch-1--2026-05-14) |
