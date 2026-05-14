@@ -40,6 +40,28 @@ python3 tools/fetch.py youtube https://www.youtube.com/@Tantratalksofficial --ol
 
 Once `raw/` has content, tell Claude: *"process the next 10 from raw/"* — it reads the files locally, no network needed.
 
+## Daily guidance — terminal UI
+
+Instead of editing `guidance.md` by hand, use the bundled CLI:
+
+```bash
+# One-time setup
+python3 -m pip install --user anthropic
+export ANTHROPIC_API_KEY=sk-ant-...       # add to ~/.zshrc to persist
+
+# Ask Swami ji
+python3 tools/ask.py
+# (type your question, press Enter twice — response streams in his voice,
+#  reflection prompt appears after, everything gets appended to guidance.md
+#  with a YYYY-MM-DD HH:MM timestamp)
+
+# Search past entries
+python3 tools/ask.py search "kali"
+python3 tools/ask.py search --since 2026-05-01
+```
+
+The script uses Claude Opus 4.7 with adaptive thinking and prompt-caches `distillation.md` as the grounding context, so each question costs roughly a cent. Override the model with `OMSWAMI_MODEL=claude-sonnet-4-6` for ~5× cheaper responses (slightly less faithful voice).
+
 ## Workflow
 
 1. Process **10 sources at a time** (oldest/foundational first).
