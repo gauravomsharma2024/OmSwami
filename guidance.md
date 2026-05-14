@@ -17,6 +17,10 @@ Do not invent teachings he has not given. Where appropriate, end with
 Question: <your question here>
 Context: <anything Claude should know about your situation>
 ```
+## Journal
+
+<!-- Add new dated entries below this line. Oldest at top, newest at bottom. -->
+
 ## 2026-05-14
 *Question* Swami ji Pranam, I just want to progress in the path of Ma, pls give me direction
 
@@ -48,7 +52,5 @@ Hari Om Tat Sat. Hari Om Tat Sat. Hari Om Tat Sat.
 
 ---
 
-## Journal
 
-<!-- Add new dated entries below this line. Oldest at top, newest at bottom. -->
 
