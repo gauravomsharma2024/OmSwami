@@ -21,6 +21,25 @@ This repository is a humble personal sadhana — a way to sit at the feet of my 
   - [Sri Badrika Ashram](https://www.youtube.com/@SriBadrikaAshram) — disciples' channel
   - [Tantra Talks Official](https://www.youtube.com/@Tantratalksofficial)
 
+## Fetching content (one-time setup on your Mac)
+
+The Claude Code cloud sandbox cannot reach os.me / omswami.org / YouTube directly. Run the bundled fetcher on your Mac to deposit raw text into `raw/` (gitignored), which Claude then processes.
+
+```bash
+brew install yt-dlp
+python3 -m pip install --user requests beautifulsoup4
+
+# Add blog post URLs to tools/batch.txt, then:
+python3 tools/fetch.py batch
+
+# YouTube — oldest 10 from each channel:
+python3 tools/fetch.py youtube https://www.youtube.com/@omswamitv --oldest 10
+python3 tools/fetch.py youtube https://www.youtube.com/@SriBadrikaAshram --oldest 10
+python3 tools/fetch.py youtube https://www.youtube.com/@Tantratalksofficial --oldest 10
+```
+
+Once `raw/` has content, tell Claude: *"process the next 10 from raw/"* — it reads the files locally, no network needed.
+
 ## Workflow
 
 1. Process **10 sources at a time** (oldest/foundational first).

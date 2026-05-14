@@ -1,0 +1,5 @@
+# Add blog post URLs here, one per line. Lines starting with # are ignored.
+# Example:
+# https://os.me/my-life-journey-om-swami/
+# https://os.me/the-path-of-om-swami/
+# https://os.me/housekeeping/

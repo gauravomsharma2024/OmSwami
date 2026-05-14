@@ -1,0 +1,7 @@
+raw/blogs/
+raw/youtube/
+raw/index.json
+*.vtt
+*.info.json
+__pycache__/
+.DS_Store

@@ -34,6 +34,27 @@
 | # | Date | Title | Status | URL |
 |---|------|-------|--------|-----|
 
+## Books by Om Swami ji
+
+> Books are copyrighted; we capture publicly available excerpts, author interviews discussing the book, and official summaries — not the full text.
+
+| # | Year | Title | Status | Notes |
+|---|------|-------|--------|-------|
+| 1 | 2014 | *If Truth Be Told: A Monk's Memoir* | ⏳ | Autobiography |
+| 2 | 2015 | *The Wellness Sense* | ⏳ | Holistic health |
+| 3 | 2016 | *A Million Thoughts* | ⏳ | Meditation manual |
+| 4 | 2016 | *Kundalini: An Untold Story* | ⏳ | Tantra / kundalini |
+| 5 | 2017 | *The Ancient Science of Mantras* | ⏳ | Mantra sadhana |
+| 6 | 2017 | *When All Is Not Well* | ⏳ | Depression & mental health |
+| 7 | 2018 | *The Hidden Power of Gayatri Mantra* | ⏳ | Gayatri sadhana |
+| 8 | 2019 | *Black Lotus* | ⏳ | Kindness practice |
+| 9 | 2020 | *The Last Gambit* | ⏳ | Novel — chess & spirituality |
+| 10 | 2022 | *Karma: A Yogi's Guide to Crafting Your Destiny* | ⏳ | Karma philosophy |
+| 11 | — | *Om Swami on Meditation* | ⏳ | Compendium |
+| 12 | — | *The Heart of Success* | ⏳ | (verify title/year) |
+
+*This list is seeded from common knowledge and must be verified+expanded against an authoritative source (e.g. Swami ji's official author page) once content fetching is enabled.*
+
 ---
 
 ## Batch Log
