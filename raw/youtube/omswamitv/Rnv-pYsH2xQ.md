@@ -1,0 +1,1287 @@
+# Om Swami - Bhaj Govindam. Hindi [5/6]
+
+**Channel:** omswamitv
+**URL:** https://www.youtube.com/watch?v=Rnv-pYsH2xQ
+**Date:** 20111215
+**Duration:** 31:02
+
+## Description
+
+Go Live Date: Jan 12, 2012
+Language: Hindi
+Bhaj Govindam is a beautiful composition of Sri Sankracarya. This stotra has also been given the title of Mohamudgara — one that shatters your passion towards material things and your attachments. Om Swami expounds on the composition in a series of six lectures. To read up on the actual verses, you can go to Om Swami's blog on www.omswami.com.
+
+## Captions
+
+Om <00:00:06.686><c>Vakratunda </c><00:00:07.332><c>Mahakaya </c><00:00:07.978><c>Surya </c><00:00:08.624><c>Koti </c><00:00:09.270><c>Sm </c><00:00:09.916><c>Prabh</c>
+Om Vakratunda Mahakaya Surya Koti Sm Prabh
+Om Vakratunda Mahakaya Surya Koti Sm Prabh
+Nirvighnam <00:00:11.293><c>Kuru </c><00:00:11.666><c>Me </c><00:00:12.039><c>Dev </c><00:00:12.412><c>Sarva </c><00:00:12.785><c>Kaash </c><00:00:13.158><c>Sarvada</c>
+First <00:00:18.640><c>of </c><00:00:19.440><c>all, </c><00:00:20.240><c>my </c><00:00:21.040><c>salutations </c><00:00:21.840><c>to</c>
+First of all, my salutations to
+First of all, my salutations to
+that <00:00:22.599><c>divine </c><00:00:22.958><c>power </c><00:00:23.317><c>residing </c><00:00:23.676><c>within </c><00:00:24.035><c>you</c>
+Bhaj <00:00:27.787><c>Govindam </c><00:00:28.215><c>Stotra </c><00:00:28.643><c>Let </c><00:00:29.071><c>us </c><00:00:29.499><c>proceed </c><00:00:29.927><c>further </c><00:00:30.355><c>today</c>
+Adi <00:00:34.080><c>Guru </c><00:00:35.000><c>writes</c>
+Adi Guru writes
+Adi Guru writes
+[praises]
+[praises]
+[praises]
+Kastam <00:00:37.470><c>ko </c><00:00:37.900><c>hum </c><00:00:38.330><c>kuta </c><00:00:38.760><c>yaat </c><00:00:39.190><c>kama </c><00:00:39.620><c>janani </c><00:00:40.050><c>ko </c><00:00:40.480><c>me </c><00:00:40.910><c>tat </c><00:00:41.340><c>iti </c><00:00:41.770><c>pari </c><00:00:42.200><c>bhaavya </c><00:00:42.630><c>sarvam </c><00:00:43.060><c>saaram </c><00:00:43.490><c>vishata </c><00:00:43.920><c>kava</c>
+Kastam ko hum kuta yaat kama janani ko me tat iti pari bhaavya sarvam saaram vishata kava
+Swapan
+Swapan
+Swapan
+vichar <00:00:52.222><c>Who </c><00:00:52.804><c>are </c><00:00:53.386><c>you, </c><00:00:53.968><c>who </c><00:00:54.550><c>am </c><00:00:55.132><c>I, </c><00:00:55.714><c>where </c><00:00:56.296><c>have </c><00:00:56.878><c>I</c>
+vichar Who are you, who am I, where have I
+vichar Who are you, who am I, where have I
+come from, who
+come from, who
+come from, who
+is <00:00:59.373><c>my </c><00:00:59.826><c>father </c><00:01:00.279><c>and </c><00:01:00.732><c>who </c><00:01:01.185><c>is </c><00:01:01.638><c>my</c>
+is my father and who is my
+is my father and who is my
+mother <00:01:03.746><c>There </c><00:01:04.092><c>is </c><00:01:04.438><c>nothing </c><00:01:04.784><c>in </c><00:01:05.130><c>these </c><00:01:05.476><c>questions</c>
+These <00:01:09.089><c>temporary </c><00:01:10.059><c>relationships </c><00:01:11.029><c>which </c><00:01:11.999><c>will</c>
+These temporary relationships which will
+These temporary relationships which will
+not <00:01:12.417><c>last </c><00:01:12.594><c>forever, </c><00:01:12.771><c>do </c><00:01:12.948><c>not </c><00:01:13.125><c>waste </c><00:01:13.302><c>your </c><00:01:13.479><c>life </c><00:01:13.656><c>in </c><00:01:13.833><c>these </c><00:01:14.010><c>relationships </c><00:01:14.187><c>which </c><00:01:14.364><c>are </c><00:01:14.541><c>not </c><00:01:14.718><c>eternal,</c>
+not last forever, do not waste your life in these relationships which are not eternal,
+perform <00:01:19.620><c>your </c><00:01:20.640><c>duty</c>
+perform your duty
+perform your duty
+but <00:01:24.931><c>keep </c><00:01:25.262><c>your </c><00:01:25.593><c>mind </c><00:01:25.924><c>focused </c><00:01:26.255><c>on </c><00:01:26.586><c>that </c><00:01:26.917><c>God</c>
+And <00:01:30.659><c>what </c><00:01:30.918><c>more </c><00:01:31.177><c>should </c><00:01:31.436><c>I</c>
+And what more should I
+And what more should I
+tell <00:01:33.699><c>you, </c><00:01:33.959><c>just </c><00:01:34.219><c>know </c><00:01:34.479><c>this </c><00:01:34.739><c>much </c><00:01:34.999><c>that</c>
+tell you, just know this much that
+tell you, just know this much that
+this <00:01:36.424><c>world </c><00:01:36.729><c>is </c><00:01:37.034><c>like </c><00:01:37.339><c>a </c><00:01:37.644><c>dream </c><00:01:37.949><c>Just </c><00:01:38.254><c>as </c><00:01:38.559><c>a</c>
+man <00:01:41.673><c>wakes </c><00:01:42.106><c>up </c><00:01:42.539><c>after </c><00:01:42.972><c>a </c><00:01:43.405><c>dream, </c><00:01:43.838><c>then</c>
+he <00:01:47.333><c>realizes </c><00:01:48.426><c>that </c><00:01:49.519><c>he</c>
+he realizes that he
+he realizes that he
+saw <00:01:49.888><c>a </c><00:01:50.017><c>dream, </c><00:01:50.146><c>it </c><00:01:50.275><c>was </c><00:01:50.404><c>just </c><00:01:50.533><c>a </c><00:01:50.662><c>dream, </c><00:01:50.791><c>there </c><00:01:50.920><c>was </c><00:01:51.049><c>no </c><00:01:51.178><c>entity </c><00:01:51.307><c>in </c><00:01:51.436><c>it</c>
+saw a dream, it was just a dream, there was no entity in it
+saw a dream, it was just a dream, there was no entity in it
+[praises]
+[praises]
+[praises]
+But <00:01:54.376><c>in </c><00:01:54.752><c>the </c><00:01:55.128><c>state </c><00:01:55.504><c>of </c><00:01:55.880><c>dream</c>
+But in the state of dream
+But in the state of dream
+[praises], it
+[praises], it
+[praises], it
+appears <00:01:58.440><c>to </c><00:01:58.920><c>him </c><00:01:59.400><c>to </c><00:01:59.880><c>be </c><00:02:00.360><c>true</c>
+appears to him to be true
+appears to him to be true
+when <00:02:01.999><c>a </c><00:02:02.599><c>man </c><00:02:03.199><c>is </c><00:02:03.799><c>dreaming</c>
+when a man is dreaming
+when a man is dreaming
+So <00:02:05.605><c>it </c><00:02:05.890><c>appears </c><00:02:06.175><c>to </c><00:02:06.460><c>be </c><00:02:06.745><c>true </c><00:02:07.030><c>to </c><00:02:07.315><c>him. </c><00:02:07.600><c>The</c>
+dream <00:02:10.483><c>is </c><00:02:10.927><c>from </c><00:02:11.371><c>the </c><00:02:11.815><c>mind, </c><00:02:12.259><c>it </c><00:02:12.703><c>is </c><00:02:13.147><c>from </c><00:02:13.591><c>the </c><00:02:14.035><c>heart, </c><00:02:14.479><c>but</c>
+dream is from the mind, it is from the heart, but
+dream is from the mind, it is from the heart, but
+still <00:02:15.179><c>the </c><00:02:15.479><c>body </c><00:02:15.779><c>starts </c><00:02:16.079><c>functioning </c><00:02:16.379><c>in </c><00:02:16.679><c>it</c>
+[praise]. The
+[praise]. The
+[praise]. The
+dream <00:02:22.995><c>may </c><00:02:23.550><c>be </c><00:02:24.105><c>of </c><00:02:24.660><c>sadness, </c><00:02:25.215><c>you </c><00:02:25.770><c>may </c><00:02:26.325><c>start </c><00:02:26.880><c>crying. </c><00:02:27.435><c>The</c>
+dream may be of sadness, you may start crying. The
+dream may be of sadness, you may start crying. The
+dream <00:02:28.060><c>may </c><00:02:28.400><c>be </c><00:02:28.740><c>of </c><00:02:29.080><c>grief, </c><00:02:29.420><c>you </c><00:02:29.760><c>may </c><00:02:30.100><c>become </c><00:02:30.440><c>overcome </c><00:02:30.780><c>with </c><00:02:31.120><c>anxiety.</c>
+dream may be of grief, you may become overcome with anxiety.
+dream may be of grief, you may become overcome with anxiety.
+You <00:02:31.799><c>may </c><00:02:32.198><c>dream </c><00:02:32.597><c>that </c><00:02:32.996><c>you </c><00:02:33.395><c>are </c><00:02:33.794><c>falling, </c><00:02:34.193><c>you </c><00:02:34.592><c>may</c>
+You may dream that you are falling, you may
+You may dream that you are falling, you may
+actually <00:02:35.103><c>fall </c><00:02:35.406><c>down </c><00:02:35.709><c>from </c><00:02:36.012><c>your </c><00:02:36.315><c>bed.</c>
+actually fall down from your bed.
+Just <00:02:38.725><c>as </c><00:02:39.131><c>during </c><00:02:39.537><c>a </c><00:02:39.943><c>dream, </c><00:02:40.349><c>the </c><00:02:40.755><c>dream</c>
+Just as during a dream, the dream
+Just as during a dream, the dream
+appears <00:02:41.739><c>to </c><00:02:42.239><c>be </c><00:02:42.739><c>true, </c><00:02:43.239><c>but </c><00:02:43.739><c>in </c><00:02:44.239><c>reality</c>
+appears to be true, but in reality
+appears to be true, but in reality
+it <00:02:44.743><c>is </c><00:02:45.046><c>an </c><00:02:45.349><c>illusion. </c><00:02:45.652><c>In </c><00:02:45.955><c>the</c>
+it is an illusion. In the
+it is an illusion. In the
+same
+same
+same
+way, <00:02:50.054><c>whatever </c><00:02:50.388><c>you </c><00:02:50.722><c>are </c><00:02:51.056><c>doing </c><00:02:51.390><c>in </c><00:02:51.724><c>the </c><00:02:52.058><c>world </c><00:02:52.392><c>during </c><00:02:52.726><c>the </c><00:02:53.060><c>waking </c><00:02:53.394><c>state</c>
+way, whatever you are doing in the world during the waking state
+way, whatever you are doing in the world during the waking state
+appears <00:02:54.826><c>to </c><00:02:55.852><c>be </c><00:02:56.878><c>true,</c>
+appears to be true,
+appears to be true,
+but
+but
+but
+this <00:03:00.599><c>is </c><00:03:00.679><c>an </c><00:03:00.759><c>illusion. </c><00:03:00.839><c>Do</c>
+this is an illusion. Do
+this is an illusion. Do
+not <00:03:02.530><c>accept </c><00:03:02.901><c>this </c><00:03:03.272><c>as </c><00:03:03.643><c>true </c><00:03:04.014><c>even </c><00:03:04.385><c>by </c><00:03:04.756><c>mistake,</c>
+not accept this as true even by mistake,
+not accept this as true even by mistake,
+because <00:03:06.133><c>when </c><00:03:06.546><c>you </c><00:03:06.959><c>reach </c><00:03:07.372><c>the </c><00:03:07.785><c>Turya </c><00:03:08.198><c>state,</c>
+because when you reach the Turya state,
+because when you reach the Turya state,
+when <00:03:08.683><c>you </c><00:03:08.886><c>reach </c><00:03:09.089><c>the </c><00:03:09.292><c>state </c><00:03:09.495><c>that </c><00:03:09.698><c>rises </c><00:03:09.901><c>above </c><00:03:10.104><c>this, </c><00:03:10.307><c>then </c><00:03:10.510><c>the</c>
+when you reach the state that rises above this, then the
+when you reach the state that rises above this, then the
+truth <00:03:10.960><c>of </c><00:03:11.280><c>the </c><00:03:11.600><c>world </c><00:03:11.920><c>will </c><00:03:12.240><c>be </c><00:03:12.560><c>revealed.</c>
+Once <00:03:26.094><c>another </c><00:03:26.428><c>king </c><00:03:26.762><c>attacks </c><00:03:27.096><c>King </c><00:03:27.430><c>Janak's </c><00:03:27.764><c>kingdom </c><00:03:28.098><c>of </c><00:03:28.432><c>Mithila</c>
+Once another king attacks King Janak's kingdom of Mithila
+Once another king attacks King Janak's kingdom of Mithila
+[praise]. The
+[praise]. The
+[praise]. The
+king's <00:03:32.184><c>minister </c><00:03:32.528><c>tells </c><00:03:32.872><c>him </c><00:03:33.216><c>that </c><00:03:33.560><c>the</c>
+king's minister tells him that the
+king's minister tells him that the
+enemy <00:03:34.085><c>forces </c><00:03:34.450><c>have </c><00:03:34.815><c>broken </c><00:03:35.180><c>through </c><00:03:35.545><c>our </c><00:03:35.910><c>fort </c><00:03:36.275><c>and</c>
+enemy forces have broken through our fort and
+enemy forces have broken through our fort and
+entered <00:03:37.020><c>inside. </c><00:03:37.400><c>Your</c>
+entered inside. Your
+entered inside. Your
+Majesty, <00:03:39.582><c>now </c><00:03:39.964><c>we </c><00:03:40.346><c>cannot </c><00:03:40.728><c>stop </c><00:03:41.110><c>them </c><00:03:41.492><c>for </c><00:03:41.874><c>long,</c>
+Majesty, now we cannot stop them for long,
+Majesty, now we cannot stop them for long,
+so <00:03:43.028><c>you </c><00:03:43.376><c>must </c><00:03:43.724><c>immediately </c><00:03:44.072><c>run </c><00:03:44.420><c>for </c><00:03:44.768><c>your </c><00:03:45.116><c>life</c>
+so you must immediately run for your life
+so you must immediately run for your life
+and <00:03:47.508><c>the </c><00:03:47.816><c>army </c><00:03:48.124><c>is </c><00:03:48.432><c>stronger </c><00:03:48.740><c>than </c><00:03:49.048><c>ours. </c><00:03:49.356><c>[</c>
+and the army is stronger than ours. [
+and the army is stronger than ours. [
+praise].
+praise].
+praise].
+King
+King
+King
+Janak <00:03:55.510><c>goes </c><00:03:55.861><c>out </c><00:03:56.212><c>of </c><00:03:56.563><c>the </c><00:03:56.914><c>palace </c><00:03:57.265><c>through </c><00:03:57.616><c>a </c><00:03:57.967><c>secret </c><00:03:58.318><c>route</c>
+Janak goes out of the palace through a secret route
+and <00:04:01.586><c>starts </c><00:04:01.933><c>running. </c><00:04:02.280><c>The</c>
+enemy <00:04:05.520><c>army </c><00:04:06.320><c>is </c><00:04:07.120><c>after </c><00:04:07.920><c>him.</c>
+enemy army is after him.
+enemy army is after him.
+Two <00:04:08.770><c>or </c><00:04:08.900><c>four </c><00:04:09.030><c>soldiers </c><00:04:09.160><c>of </c><00:04:09.290><c>the </c><00:04:09.420><c>enemy </c><00:04:09.550><c>army </c><00:04:09.680><c>spot </c><00:04:09.810><c>him </c><00:04:09.940><c>and </c><00:04:10.070><c>get</c>
+Two or four soldiers of the enemy army spot him and get
+tired <00:04:15.519><c>of </c><00:04:15.839><c>running </c><00:04:16.159><c>and </c><00:04:16.479><c>disappear</c>
+tired of running and disappear
+tired of running and disappear
+from <00:04:17.834><c>the </c><00:04:18.228><c>sight </c><00:04:18.622><c>of </c><00:04:19.016><c>the </c><00:04:19.410><c>enemy </c><00:04:19.804><c>army. </c><00:04:20.198><c>He</c>
+from the sight of the enemy army. He
+from the sight of the enemy army. He
+sits <00:04:21.239><c>down </c><00:04:21.519><c>at </c><00:04:21.799><c>a </c><00:04:22.079><c>place </c><00:04:22.359><c>and </c><00:04:22.639><c>starts </c><00:04:22.919><c>resting. </c><00:04:23.199><c>He </c><00:04:23.479><c>feels</c>
+sits down at a place and starts resting. He feels
+sits down at a place and starts resting. He feels
+very <00:04:25.430><c>thirsty. </c><00:04:25.900><c>He </c><00:04:26.370><c>moves </c><00:04:26.840><c>a</c>
+very thirsty. He moves a
+little <00:04:35.999><c>further </c><00:04:37.359><c>and</c>
+little further and
+little further and
+reaches <00:04:37.999><c>a </c><00:04:38.158><c>village </c><00:04:38.317><c>of </c><00:04:38.476><c>his </c><00:04:38.635><c>kingdom. </c><00:04:38.794><c>There </c><00:04:38.953><c>is </c><00:04:39.112><c>a </c><00:04:39.271><c>knock </c><00:04:39.430><c>on </c><00:04:39.589><c>a </c><00:04:39.748><c>door. </c><00:04:39.907><c>The</c>
+reaches a village of his kingdom. There is a knock on a door. The
+owner <00:04:43.600><c>of </c><00:04:43.960><c>the </c><00:04:44.320><c>house </c><00:04:44.680><c>comes </c><00:04:45.040><c>out </c><00:04:45.400><c>from </c><00:04:45.760><c>inside </c><00:04:46.120><c>and</c>
+owner of the house comes out from inside and
+owner of the house comes out from inside and
+sees <00:04:48.165><c>the </c><00:04:48.450><c>king </c><00:04:48.735><c>standing </c><00:04:49.020><c>in </c><00:04:49.305><c>front </c><00:04:49.590><c>of </c><00:04:49.875><c>him </c><00:04:50.160><c>and</c>
+sees the king standing in front of him and
+sees the king standing in front of him and
+greets <00:04:53.199><c>him.</c>
+greets him.
+greets him.
+King <00:04:56.059><c>Janak </c><00:04:56.919><c>says</c>
+King Janak says
+King Janak says
+that <00:04:58.253><c>I </c><00:04:58.706><c>am </c><00:04:59.159><c>very </c><00:04:59.612><c>hungry, </c><00:05:00.065><c>very </c><00:05:00.518><c>thirsty, </c><00:05:00.971><c>will </c><00:05:01.424><c>you </c><00:05:01.877><c>give</c>
+that I am very hungry, very thirsty, will you give
+that I am very hungry, very thirsty, will you give
+me <00:05:03.770><c>something </c><00:05:04.220><c>to </c><00:05:04.670><c>eat? </c><00:05:05.120><c>He</c>
+me something to eat? He
+me something to eat? He
+says, <00:05:08.120><c>"</c>
+says, "
+says, "
+Sorry, <00:05:09.697><c>my </c><00:05:10.074><c>lord, </c><00:05:10.451><c>I </c><00:05:10.828><c>cannot </c><00:05:11.205><c>give </c><00:05:11.582><c>you </c><00:05:11.959><c>anything.</c>
+Sorry, my lord, I cannot give you anything.
+Sorry, my lord, I cannot give you anything.
+You <00:05:12.420><c>have </c><00:05:12.720><c>to </c><00:05:13.020><c>leave </c><00:05:13.320><c>from </c><00:05:13.620><c>here </c><00:05:13.920><c>right </c><00:05:14.220><c>now. </c><00:05:14.520><c>The</c>
+You have to leave from here right now. The
+You have to leave from here right now. The
+enemy <00:05:14.983><c>army </c><00:05:15.166><c>is </c><00:05:15.349><c>after </c><00:05:15.532><c>you. </c><00:05:15.715><c>This </c><00:05:15.898><c>is </c><00:05:16.081><c>my </c><00:05:16.264><c>house, </c><00:05:16.447><c>this </c><00:05:16.630><c>is</c>
+enemy army is after you. This is my house, this is
+enemy army is after you. This is my house, this is
+my <00:05:17.142><c>household, </c><00:05:17.444><c>and </c><00:05:17.746><c>they </c><00:05:18.048><c>will </c><00:05:18.350><c>kill </c><00:05:18.652><c>me </c><00:05:18.954><c>too</c>
+my household, and they will kill me too
+my household, and they will kill me too
+if <00:05:19.584><c>we </c><00:05:19.888><c>give </c><00:05:20.192><c>you </c><00:05:20.496><c>shelter." </c><00:05:20.800><c>The</c>
+king <00:05:24.260><c>is </c><00:05:24.720><c>stunned </c><00:05:25.180><c>to </c><00:05:25.640><c>hear </c><00:05:26.100><c>his </c><00:05:26.560><c>reply</c>
+king is stunned to hear his reply
+king is stunned to hear his reply
+that <00:05:28.181><c>these </c><00:05:28.362><c>are </c><00:05:28.543><c>the </c><00:05:28.724><c>people </c><00:05:28.905><c>whom </c><00:05:29.086><c>I </c><00:05:29.267><c>have </c><00:05:29.448><c>taken </c><00:05:29.629><c>care </c><00:05:29.810><c>of </c><00:05:29.991><c>with </c><00:05:30.172><c>all </c><00:05:30.353><c>my </c><00:05:30.534><c>life, </c><00:05:30.715><c>but</c>
+that these are the people whom I have taken care of with all my life, but
+today <00:05:33.809><c>they </c><00:05:34.139><c>are </c><00:05:34.469><c>telling </c><00:05:34.799><c>me </c><00:05:35.129><c>that </c><00:05:35.459><c>they </c><00:05:35.789><c>will </c><00:05:36.119><c>not</c>
+today they are telling me that they will not
+today they are telling me that they will not
+give <00:05:36.487><c>me </c><00:05:36.694><c>food, </c><00:05:36.901><c>nor </c><00:05:37.108><c>water. </c><00:05:37.315><c>He</c>
+give me food, nor water. He
+give me food, nor water. He
+thinks <00:05:38.866><c>that </c><00:05:39.172><c>it </c><00:05:39.478><c>is </c><00:05:39.784><c>okay, </c><00:05:40.090><c>I </c><00:05:40.396><c>will </c><00:05:40.702><c>take </c><00:05:41.008><c>it </c><00:05:41.314><c>later </c><00:05:41.620><c>and </c><00:05:41.926><c>moves </c><00:05:42.232><c>forward.</c>
+thinks that it is okay, I will take it later and moves forward.
+King <00:05:47.446><c>Janak </c><00:05:48.172><c>goes </c><00:05:48.898><c>ahead </c><00:05:49.624><c>and </c><00:05:50.350><c>another  </c><00:05:51.076><c>A</c>
+King Janak goes ahead and another  A
+King Janak goes ahead and another  A
+knock <00:05:52.015><c>is </c><00:05:52.551><c>heard </c><00:05:53.087><c>on </c><00:05:53.623><c>the </c><00:05:54.159><c>door.</c>
+knock is heard on the door.
+knock is heard on the door.
+A <00:05:56.399><c>woman </c><00:05:56.998><c>comes </c><00:05:57.597><c>out. </c><00:05:58.196><c>The</c>
+king <00:06:01.546><c>says, </c><00:06:01.852><c>"I </c><00:06:02.158><c>am </c><00:06:02.464><c>very </c><00:06:02.770><c>hungry </c><00:06:03.076><c>and</c>
+king says, "I am very hungry and
+king says, "I am very hungry and
+thirsty.
+thirsty.
+thirsty.
+Can <00:06:04.973><c>you </c><00:06:05.346><c>give </c><00:06:05.719><c>me </c><00:06:06.092><c>something </c><00:06:06.465><c>to </c><00:06:06.838><c>eat </c><00:06:07.211><c>or </c><00:06:07.584><c>drink?" </c><00:06:07.957><c>She</c>
+Can you give me something to eat or drink?" She
+Can you give me something to eat or drink?" She
+says, <00:06:09.519><c>"Your </c><00:06:09.999><c>Majesty, </c><00:06:10.479><c>I </c><00:06:10.959><c>have </c><00:06:11.439><c>small </c><00:06:11.919><c>children.</c>
+says, "Your Majesty, I have small children.
+says, "Your Majesty, I have small children.
+Now <00:06:13.965><c>another </c><00:06:14.530><c>king </c><00:06:15.095><c>has </c><00:06:15.660><c>taken </c><00:06:16.225><c>over </c><00:06:16.790><c>this </c><00:06:17.355><c>kingdom,</c>
+Now another king has taken over this kingdom,
+so <00:06:19.035><c>I </c><00:06:19.390><c>cannot </c><00:06:19.745><c>do </c><00:06:20.100><c>anything </c><00:06:20.455><c>that </c><00:06:20.810><c>would </c><00:06:21.165><c>be </c><00:06:21.520><c>considered </c><00:06:21.875><c>a</c>
+so I cannot do anything that would be considered a
+so I cannot do anything that would be considered a
+traitor.
+traitor.
+traitor.
+Another <00:06:26.855><c>king </c><00:06:27.470><c>would </c><00:06:28.085><c>destroy </c><00:06:28.700><c>my </c><00:06:29.315><c>family.</c>
+Another king would destroy my family.
+Another king would destroy my family.
+You <00:06:30.496><c>should </c><00:06:30.793><c>go </c><00:06:31.090><c>a </c><00:06:31.387><c>little </c><00:06:31.684><c>further </c><00:06:31.981><c>from </c><00:06:32.278><c>here. </c><00:06:32.575><c>There </c><00:06:32.872><c>is</c>
+You should go a little further from here. There is
+You should go a little further from here. There is
+a <00:06:33.239><c>well </c><00:06:33.358><c>outside </c><00:06:33.477><c>the </c><00:06:33.596><c>village.</c>
+a well outside the village.
+a well outside the village.
+You <00:06:35.025><c>can </c><00:06:35.291><c>draw </c><00:06:35.557><c>water </c><00:06:35.823><c>from </c><00:06:36.089><c>there </c><00:06:36.355><c>and </c><00:06:36.621><c>drink. </c><00:06:36.887><c>There </c><00:06:37.153><c>are</c>
+sugarcane <00:06:41.520><c>fields </c><00:06:43.360><c>nearby.</c>
+sugarcane fields nearby.
+sugarcane fields nearby.
+You <00:06:43.898><c>can </c><00:06:44.116><c>take </c><00:06:44.334><c>out </c><00:06:44.552><c>a </c><00:06:44.770><c>couple </c><00:06:44.988><c>of </c><00:06:45.206><c>sugarcanes </c><00:06:45.424><c>and </c><00:06:45.642><c>eat </c><00:06:45.860><c>them. </c><00:06:46.078><c>Please</c>
+You can take out a couple of sugarcanes and eat them. Please
+You can take out a couple of sugarcanes and eat them. Please
+leave <00:06:46.440><c>immediately."</c>
+leave immediately."
+leave immediately."
+She <00:06:47.866><c>closes </c><00:06:48.332><c>the </c><00:06:48.798><c>door </c><00:06:49.264><c>and </c><00:06:49.730><c>goes </c><00:06:50.196><c>inside.</c>
+She closes the door and goes inside.
+She closes the door and goes inside.
+King <00:06:55.453><c>Janak </c><00:06:55.906><c>runs </c><00:06:56.359><c>further. </c><00:06:56.812><c>He </c><00:06:57.265><c>reaches </c><00:06:57.718><c>the</c>
+King Janak runs further. He reaches the
+King Janak runs further. He reaches the
+well <00:07:00.710><c>outside </c><00:07:01.140><c>the </c><00:07:01.570><c>village. </c><00:07:02.000><c>He</c>
+well outside the village. He
+well outside the village. He
+draws <00:07:04.695><c>some </c><00:07:05.191><c>water </c><00:07:05.687><c>and </c><00:07:06.183><c>drinks. </c><00:07:06.679><c>He</c>
+draws some water and drinks. He
+draws some water and drinks. He
+rests. <00:07:07.824><c>He </c><00:07:07.968><c>is </c><00:07:08.112><c>extremely </c><00:07:08.256><c>tired </c><00:07:08.400><c>from </c><00:07:08.544><c>running </c><00:07:08.688><c>all </c><00:07:08.832><c>day </c><00:07:08.976><c>and </c><00:07:09.120><c>falls </c><00:07:09.264><c>asleep. </c><00:07:09.408><c>He </c><00:07:09.552><c>falls</c>
+rests. He is extremely tired from running all day and falls asleep. He falls
+rests. He is extremely tired from running all day and falls asleep. He falls
+asleep. <00:07:11.420><c>Then </c><00:07:13.000><c>he</c>
+asleep. Then he
+asleep. Then he
+sees <00:07:21.811><c>that </c><00:07:22.342><c>two </c><00:07:22.873><c>soldiers </c><00:07:23.404><c>from </c><00:07:23.935><c>the </c><00:07:24.466><c>enemy </c><00:07:24.997><c>army</c>
+sees that two soldiers from the enemy army
+sees that two soldiers from the enemy army
+reach <00:07:26.520><c>him</c>
+reach him
+reach him
+and <00:07:28.324><c>are </c><00:07:28.609><c>forcefully </c><00:07:28.894><c>waking </c><00:07:29.179><c>him </c><00:07:29.464><c>up. </c><00:07:29.749><c>"Wake </c><00:07:30.034><c>up, </c><00:07:30.319><c>my</c>
+and are forcefully waking him up. "Wake up, my
+and are forcefully waking him up. "Wake up, my
+king, <00:07:31.826><c>wake </c><00:07:32.292><c>up. </c><00:07:32.758><c>Come,</c>
+king, wake up. Come,
+you <00:07:39.731><c>have </c><00:07:39.863><c>to </c><00:07:39.995><c>come </c><00:07:40.127><c>with </c><00:07:40.259><c>us." </c><00:07:40.391><c>Just </c><00:07:40.523><c>then, </c><00:07:40.655><c>the </c><00:07:40.787><c>king </c><00:07:40.919><c>gets </c><00:07:41.051><c>up </c><00:07:41.183><c>in </c><00:07:41.315><c>a </c><00:07:41.447><c>hurry.  </c><00:07:41.579><c>He </c><00:07:41.711><c>wakes </c><00:07:41.843><c>up </c><00:07:41.975><c>in </c><00:07:42.107><c>a</c>
+panic <00:07:46.340><c>and </c><00:07:47.840><c>finds</c>
+panic and finds
+panic and finds
+neither <00:07:48.416><c>a </c><00:07:48.872><c>soldier </c><00:07:49.328><c>nor </c><00:07:49.784><c>a </c><00:07:50.240><c>well.</c>
+neither a soldier nor a well.
+neither a soldier nor a well.
+He <00:07:53.720><c>is</c>
+He is
+He is
+lying <00:07:54.866><c>on </c><00:07:55.212><c>his </c><00:07:55.558><c>bed </c><00:07:55.904><c>in </c><00:07:56.250><c>his </c><00:07:56.596><c>palace,</c>
+and <00:08:00.311><c>his </c><00:08:00.542><c>royal </c><00:08:00.773><c>physician </c><00:08:01.004><c>and </c><00:08:01.235><c>minister </c><00:08:01.466><c>wake </c><00:08:01.697><c>him </c><00:08:01.928><c>up. </c><00:08:02.159><c>They</c>
+say, <00:08:05.453><c>"Your </c><00:08:05.666><c>Majesty, </c><00:08:05.879><c>you </c><00:08:06.092><c>were </c><00:08:06.305><c>in </c><00:08:06.518><c>a </c><00:08:06.731><c>very </c><00:08:06.944><c>deep </c><00:08:07.157><c>sleep </c><00:08:07.370><c>and </c><00:08:07.583><c>were </c><00:08:07.796><c>constantly</c>
+say, "Your Majesty, you were in a very deep sleep and were constantly
+say, "Your Majesty, you were in a very deep sleep and were constantly
+flustered. <00:08:08.600><c>That's </c><00:08:09.120><c>why</c>
+flustered. That's why
+flustered. That's why
+we <00:08:11.280><c>called </c><00:08:12.280><c>immediately."</c>
+King <00:08:16.372><c>Janak </c><00:08:16.825><c>realizes </c><00:08:17.278><c>that </c><00:08:17.731><c>what </c><00:08:18.184><c>he </c><00:08:18.637><c>was</c>
+King Janak realizes that what he was
+King Janak realizes that what he was
+seeing <00:08:19.099><c>was </c><00:08:19.358><c>just </c><00:08:19.617><c>a </c><00:08:19.876><c>dream.</c>
+However, <00:08:23.404><c>a </c><00:08:23.769><c>profound </c><00:08:24.134><c>question </c><00:08:24.499><c>arises </c><00:08:24.864><c>in </c><00:08:25.229><c>his </c><00:08:25.594><c>mind.</c>
+However, a profound question arises in his mind.
+However, a profound question arises in his mind.
+He <00:08:28.639><c>invites </c><00:08:28.838><c>all </c><00:08:29.037><c>the </c><00:08:29.236><c>learned </c><00:08:29.435><c>men, </c><00:08:29.634><c>sages, </c><00:08:29.833><c>and </c><00:08:30.032><c>monks </c><00:08:30.231><c>of </c><00:08:30.430><c>his </c><00:08:30.629><c>kingdom. </c><00:08:30.828><c>They </c><00:08:31.027><c>all</c>
+He invites all the learned men, sages, and monks of his kingdom. They all
+come. <00:08:37.880><c>The</c>
+come. The
+come. The
+king <00:08:40.479><c>tells </c><00:08:40.878><c>them </c><00:08:41.277><c>about </c><00:08:41.676><c>his </c><00:08:42.075><c>dream. </c><00:08:42.474><c>The</c>
+king tells them about his dream. The
+king tells them about his dream. The
+astrologer
+astrologer
+astrologer
+says, <00:08:49.376><c>"King, </c><00:08:49.793><c>we </c><00:08:50.210><c>have </c><00:08:50.627><c>considered </c><00:08:51.044><c>all </c><00:08:51.461><c>the </c><00:08:51.878><c>omens.</c>
+says, "King, we have considered all the omens.
+says, "King, we have considered all the omens.
+You
+You
+You
+need <00:08:53.808><c>not </c><00:08:53.856><c>worry </c><00:08:53.904><c>at </c><00:08:53.952><c>all. </c><00:08:54.000><c>There </c><00:08:54.048><c>is </c><00:08:54.096><c>nothing </c><00:08:54.144><c>that </c><00:08:54.192><c>is </c><00:08:54.240><c>a</c>
+omens."
+King <00:09:04.946><c>Janak </c><00:09:05.572><c>says, </c><00:09:06.198><c>"</c>
+I <00:09:10.025><c>am </c><00:09:10.370><c>not </c><00:09:10.715><c>asking </c><00:09:11.060><c>whether </c><00:09:11.405><c>there </c><00:09:11.750><c>is </c><00:09:12.095><c>any </c><00:09:12.440><c>omens</c>
+I am not asking whether there is any omens
+I am not asking whether there is any omens
+or <00:09:12.575><c>whether </c><00:09:12.631><c>you </c><00:09:12.687><c>are </c><00:09:12.743><c>the </c><00:09:12.799><c>omens.</c>
+or whether you are the omens.
+or whether you are the omens.
+My <00:09:14.510><c>question </c><00:09:15.020><c>is </c><00:09:15.530><c>entirely </c><00:09:16.040><c>different.</c>
+I <00:09:21.133><c>want </c><00:09:21.786><c>to </c><00:09:22.439><c>know</c>
+who <00:09:29.808><c>can </c><00:09:30.056><c>assure </c><00:09:30.304><c>me </c><00:09:30.552><c>that </c><00:09:30.800><c>this </c><00:09:31.048><c>is </c><00:09:31.296><c>not </c><00:09:31.544><c>a </c><00:09:31.792><c>dream</c>
+who can assure me that this is not a dream
+who can assure me that this is not a dream
+and <00:09:32.089><c>that </c><00:09:32.219><c>it </c><00:09:32.349><c>was </c><00:09:32.479><c>true.</c>
+It <00:09:35.856><c>is </c><00:09:36.313><c>also </c><00:09:36.770><c>possible </c><00:09:37.227><c>that </c><00:09:37.684><c>there </c><00:09:38.141><c>will </c><00:09:38.598><c>be </c><00:09:39.055><c>a </c><00:09:39.512><c>real</c>
+It is also possible that there will be a real
+It is also possible that there will be a real
+attack."  <00:09:40.380><c>It </c><00:09:40.560><c>may </c><00:09:40.740><c>have </c><00:09:40.920><c>happened, </c><00:09:41.100><c>it </c><00:09:41.280><c>may </c><00:09:41.460><c>be </c><00:09:41.640><c>the </c><00:09:41.820><c>truth </c><00:09:42.000><c>of </c><00:09:42.180><c>my </c><00:09:42.360><c>life</c>
+attack."  It may have happened, it may be the truth of my life
+attack."  It may have happened, it may be the truth of my life
+that <00:09:42.702><c>I </c><00:09:42.964><c>have </c><00:09:43.226><c>lost </c><00:09:43.488><c>everything </c><00:09:43.750><c>including </c><00:09:44.012><c>the </c><00:09:44.274><c>kingdom</c>
+that I have lost everything including the kingdom
+that I have lost everything including the kingdom
+and <00:09:45.539><c>at </c><00:09:45.918><c>that </c><00:09:46.297><c>time </c><00:09:46.676><c>I </c><00:09:47.055><c>was </c><00:09:47.434><c>dreaming </c><00:09:47.813><c>this </c><00:09:48.192><c>while </c><00:09:48.571><c>sleeping. </c><00:09:48.950><c>It</c>
+is <00:09:54.026><c>worth </c><00:09:54.812><c>thinking </c><00:09:55.598><c>about.</c>
+is worth thinking about.
+is worth thinking about.
+[Praise].
+[Praise].
+[Praise].
+Do <00:10:01.053><c>you </c><00:10:01.986><c>have </c><00:10:02.919><c>any</c>
+Do you have any
+Do you have any
+concrete <00:10:03.468><c>proof </c><00:10:03.816><c>of </c><00:10:04.164><c>this, </c><00:10:04.512><c>any </c><00:10:04.860><c>evidence </c><00:10:05.208><c>that </c><00:10:05.556><c>the </c><00:10:05.904><c>life </c><00:10:06.252><c>you </c><00:10:06.600><c>are</c>
+concrete proof of this, any evidence that the life you are
+concrete proof of this, any evidence that the life you are
+living <00:10:07.112><c>is </c><00:10:07.344><c>not </c><00:10:07.576><c>a </c><00:10:07.808><c>dream. </c><00:10:08.040><c>Who</c>
+living is not a dream. Who
+living is not a dream. Who
+knows, <00:10:09.805><c>the </c><00:10:10.211><c>dream </c><00:10:10.617><c>you </c><00:10:11.023><c>are </c><00:10:11.429><c>seeing </c><00:10:11.835><c>is</c>
+knows, the dream you are seeing is
+knows, the dream you are seeing is
+your <00:10:11.999><c>waking </c><00:10:12.039><c>state. </c><00:10:12.079><c>Who</c>
+your waking state. Who
+your waking state. Who
+knows, <00:10:14.074><c>you </c><00:10:14.428><c>may </c><00:10:14.782><c>be </c><00:10:15.136><c>sleeping </c><00:10:15.490><c>somewhere </c><00:10:15.844><c>right </c><00:10:16.198><c>now</c>
+knows, you may be sleeping somewhere right now
+knows, you may be sleeping somewhere right now
+and <00:10:17.560><c>dreaming </c><00:10:18.200><c>while </c><00:10:18.840><c>sleeping. </c><00:10:19.480><c>Which</c>
+and dreaming while sleeping. Which
+and dreaming while sleeping. Which
+discourse <00:10:19.919><c>are </c><00:10:20.078><c>you </c><00:10:20.237><c>listening </c><00:10:20.396><c>to?</c>
+[Praise].
+[Praise].
+[Praise].
+This <00:10:25.095><c>world </c><00:10:25.671><c>is </c><00:10:26.247><c>as </c><00:10:26.823><c>real </c><00:10:27.399><c>as</c>
+This world is as real as
+This world is as real as
+your <00:10:27.749><c>dream </c><00:10:27.979><c>is </c><00:10:28.209><c>real. </c><00:10:28.439><c>What</c>
+your dream is real. What
+your dream is real. What
+was <00:10:31.109><c>there </c><00:10:31.259><c>50 </c><00:10:31.409><c>years </c><00:10:31.559><c>ago, </c><00:10:31.709><c>it </c><00:10:31.859><c>is </c><00:10:32.009><c>not </c><00:10:32.159><c>there </c><00:10:32.309><c>today. </c><00:10:32.459><c>What </c><00:10:32.609><c>was </c><00:10:32.759><c>there</c>
+was there 50 years ago, it is not there today. What was there
+was there 50 years ago, it is not there today. What was there
+100 <00:10:34.923><c>years </c><00:10:35.207><c>ago, </c><00:10:35.491><c>it </c><00:10:35.775><c>has </c><00:10:36.059><c>changed </c><00:10:36.343><c>completely. </c><00:10:36.627><c>So, </c><00:10:36.911><c>that </c><00:10:37.195><c>which </c><00:10:37.479><c>does</c>
+100 years ago, it has changed completely. So, that which does
+100 years ago, it has changed completely. So, that which does
+not <00:10:42.200><c>belong </c><00:10:42.400><c>to </c><00:10:42.600><c>anyone, </c><00:10:42.800><c>how </c><00:10:43.000><c>can </c><00:10:43.200><c>it </c><00:10:43.400><c>be </c><00:10:43.600><c>yours? </c><00:10:43.800><c>That </c><00:10:44.000><c>which </c><00:10:44.200><c>does </c><00:10:44.400><c>not </c><00:10:44.600><c>belong </c><00:10:44.800><c>to</c>
+not belong to anyone, how can it be yours? That which does not belong to
+not belong to anyone, how can it be yours? That which does not belong to
+oneself, <00:10:45.544><c>how </c><00:10:46.048><c>can </c><00:10:46.552><c>it </c><00:10:47.056><c>be </c><00:10:47.560><c>yours?</c>
+oneself, how can it be yours?
+Iti <00:10:49.528><c>Paribha </c><00:10:50.176><c>Vya </c><00:10:50.824><c>Sarvam </c><00:10:51.472><c>Saaram </c><00:10:52.120><c>Vishtuk</c>
+Iti Paribha Vya Sarvam Saaram Vishtuk
+Iti Paribha Vya Sarvam Saaram Vishtuk
+Swapan
+Vichar, <00:10:55.348><c>I </c><00:10:55.696><c>will </c><00:10:56.044><c>tell </c><00:10:56.392><c>you </c><00:10:56.740><c>this </c><00:10:57.088><c>in </c><00:10:57.436><c>summary.</c>
+Vichar, I will tell you this in summary.
+Vichar, I will tell you this in summary.
+Adidev <00:10:57.959><c>Guru </c><00:10:58.279><c>Shankaracharya </c><00:10:58.599><c>Ji </c><00:10:58.919><c>says,</c>
+Adidev Guru Shankaracharya Ji says,
+Adidev Guru Shankaracharya Ji says,
+abandon <00:11:00.080><c>the </c><00:11:00.400><c>world </c><00:11:00.720><c>like </c><00:11:01.040><c>a </c><00:11:01.360><c>dream</c>
+abandon the world like a dream
+abandon the world like a dream
+[Praise].
+[Praise].
+[Praise].
+De <00:11:05.513><c>Yama </c><00:11:05.866><c>Chan </c><00:11:06.219><c>Taray </c><00:11:06.572><c>Ko </c><00:11:06.925><c>Vishnu </c><00:11:07.278><c>Vartham </c><00:11:07.631><c>Kopas </c><00:11:07.984><c>Sarva </c><00:11:08.337><c>Sahisnu </c><00:11:08.690><c>Sarvasva </c><00:11:09.043><c>Uts </c><00:11:09.396><c>Bhed </c><00:11:09.749><c>Gyan</c>
+De Yama Chan Taray Ko Vishnu Vartham Kopas Sarva Sahisnu Sarvasva Uts Bhed Gyan
+De Yama Chan Taray Ko Vishnu Vartham Kopas Sarva Sahisnu Sarvasva Uts Bhed Gyan
+says, <00:11:19.093><c>what </c><00:11:19.306><c>is </c><00:11:19.519><c>the </c><00:11:19.732><c>fight </c><00:11:19.945><c>about?  </c><00:11:20.158><c>You </c><00:11:20.371><c>are </c><00:11:20.584><c>doing </c><00:11:20.797><c>it, </c><00:11:21.010><c>there </c><00:11:21.223><c>is </c><00:11:21.436><c>only</c>
+says, what is the fight about?  You are doing it, there is only
+says, what is the fight about?  You are doing it, there is only
+one <00:11:22.954><c>God </c><00:11:23.348><c>in </c><00:11:23.742><c>everyone's </c><00:11:24.136><c>heart, </c><00:11:24.530><c>there </c><00:11:24.924><c>is </c><00:11:25.318><c>only</c>
+one God in everyone's heart, there is only
+one God in everyone's heart, there is only
+one <00:11:25.630><c>Vishnu, </c><00:11:25.660><c>give </c><00:11:25.690><c>him </c><00:11:25.720><c>any</c>
+one Vishnu, give him any
+one Vishnu, give him any
+form, <00:11:27.340><c>give </c><00:11:28.000><c>him </c><00:11:28.660><c>any </c><00:11:29.320><c>name,</c>
+form, give him any name,
+form, give him any name,
+describe <00:11:31.489><c>him </c><00:11:32.139><c>with </c><00:11:32.789><c>any </c><00:11:33.439><c>qualities,</c>
+describe him with any qualities,
+describe him with any qualities,
+explain <00:11:34.179><c>him, </c><00:11:34.598><c>he </c><00:11:35.017><c>will </c><00:11:35.436><c>remain </c><00:11:35.855><c>the </c><00:11:36.274><c>same,</c>
+you <00:11:39.272><c>will </c><00:11:39.504><c>not </c><00:11:39.736><c>become </c><00:11:39.968><c>bad </c><00:11:40.200><c>if </c><00:11:40.432><c>I </c><00:11:40.664><c>say </c><00:11:40.896><c>bad </c><00:11:41.128><c>things </c><00:11:41.360><c>to </c><00:11:41.592><c>him,</c>
+you will not become bad if I say bad things to him,
+you will not become bad if I say bad things to him,
+nor <00:11:41.890><c>will </c><00:11:42.020><c>you </c><00:11:42.150><c>become </c><00:11:42.280><c>good </c><00:11:42.410><c>if </c><00:11:42.540><c>I </c><00:11:42.670><c>say </c><00:11:42.800><c>good </c><00:11:42.930><c>things </c><00:11:43.060><c>to </c><00:11:43.190><c>him,</c>
+nor will you become good if I say good things to him,
+nor will you become good if I say good things to him,
+he <00:11:43.720><c>will </c><00:11:44.120><c>be </c><00:11:44.520><c>you, </c><00:11:44.920><c>with </c><00:11:45.320><c>your</c>
+he will be you, with your
+he will be you, with your
+thoughts, <00:11:45.749><c>with </c><00:11:45.979><c>your </c><00:11:46.209><c>mind, </c><00:11:46.439><c>with </c><00:11:46.669><c>your </c><00:11:46.899><c>actions, </c><00:11:47.129><c>with </c><00:11:47.359><c>your</c>
+thoughts, with your mind, with your actions, with your
+thoughts, with your mind, with your actions, with your
+feelings, <00:11:48.419><c>so </c><00:11:49.078><c>if</c>
+feelings, so if
+feelings, so if
+someone <00:11:50.492><c>calls </c><00:11:50.905><c>God </c><00:11:51.318><c>good </c><00:11:51.731><c>then </c><00:11:52.144><c>God </c><00:11:52.557><c>is</c>
+someone calls God good then God is
+someone calls God good then God is
+not <00:11:52.990><c>good, </c><00:11:53.141><c>if </c><00:11:53.292><c>someone </c><00:11:53.443><c>calls </c><00:11:53.594><c>him </c><00:11:53.745><c>bad </c><00:11:53.896><c>then </c><00:11:54.047><c>God </c><00:11:54.198><c>is</c>
+not good, if someone calls him bad then God is
+not good, if someone calls him bad then God is
+not <00:11:54.671><c>bad, </c><00:11:54.862><c>if </c><00:11:55.053><c>someone </c><00:11:55.244><c>says </c><00:11:55.435><c>he </c><00:11:55.626><c>is </c><00:11:55.817><c>four-armed </c><00:11:56.008><c>then </c><00:11:56.199><c>he </c><00:11:56.390><c>does</c>
+not bad, if someone says he is four-armed then he does
+not bad, if someone says he is four-armed then he does
+not <00:11:56.730><c>become </c><00:11:56.941><c>four-armed, </c><00:11:57.152><c>if </c><00:11:57.363><c>someone </c><00:11:57.574><c>says </c><00:11:57.785><c>he </c><00:11:57.996><c>is</c>
+not become four-armed, if someone says he is
+not become four-armed, if someone says he is
+eight-armed <00:11:58.406><c>then </c><00:11:58.692><c>he </c><00:11:58.978><c>does </c><00:11:59.264><c>not </c><00:11:59.550><c>become </c><00:11:59.836><c>eight-armed,</c>
+eight-armed then he does not become eight-armed,
+eight-armed then he does not become eight-armed,
+whoever <00:12:01.031><c>liked </c><00:12:01.223><c>him, </c><00:12:01.415><c>he </c><00:12:01.607><c>gave </c><00:12:01.799><c>him </c><00:12:01.991><c>a </c><00:12:02.183><c>form </c><00:12:02.375><c>as </c><00:12:02.567><c>per </c><00:12:02.759><c>his </c><00:12:02.951><c>liking,</c>
+whoever liked him, he gave him a form as per his liking,
+whoever liked him, he gave him a form as per his liking,
+but <00:12:04.780><c>this </c><00:12:05.200><c>does </c><00:12:05.620><c>not </c><00:12:06.040><c>change </c><00:12:06.460><c>the </c><00:12:06.880><c>truth, </c><00:12:07.300><c>God </c><00:12:07.720><c>has</c>
+but this does not change the truth, God has
+but this does not change the truth, God has
+not <00:12:08.353><c>become </c><00:12:08.627><c>different, </c><00:12:08.901><c>there </c><00:12:09.175><c>is </c><00:12:09.449><c>only </c><00:12:09.723><c>one </c><00:12:09.997><c>God,</c>
+not become different, there is only one God,
+believe <00:12:12.607><c>him </c><00:12:12.774><c>as </c><00:12:12.941><c>you </c><00:12:13.108><c>like, </c><00:12:13.275><c>whatever </c><00:12:13.442><c>fights </c><00:12:13.609><c>there </c><00:12:13.776><c>are </c><00:12:13.943><c>regarding </c><00:12:14.110><c>religion, </c><00:12:14.277><c>sect, </c><00:12:14.444><c>whatever </c><00:12:14.611><c>riots </c><00:12:14.778><c>there </c><00:12:14.945><c>are, </c><00:12:15.112><c>how </c><00:12:15.279><c>much</c>
+believe him as you like, whatever fights there are regarding religion, sect, whatever riots there are, how much
+talk <00:12:20.564><c>of </c><00:12:20.849><c>idols, </c><00:12:21.134><c>how </c><00:12:21.419><c>much </c><00:12:21.704><c>foolishness, </c><00:12:21.989><c>what </c><00:12:22.274><c>is </c><00:12:22.559><c>the</c>
+talk of idols, how much foolishness, what is the
+talk of idols, how much foolishness, what is the
+fight <00:12:22.912><c>about, </c><00:12:23.064><c>I </c><00:12:23.216><c>am </c><00:12:23.368><c>not </c><00:12:23.520><c>able </c><00:12:23.672><c>to </c><00:12:23.824><c>understand, </c><00:12:23.976><c>whoever </c><00:12:24.128><c>is </c><00:12:24.280><c>happy </c><00:12:24.432><c>by</c>
+fight about, I am not able to understand, whoever is happy by
+fight about, I am not able to understand, whoever is happy by
+saying <00:12:24.785><c>Allah, </c><00:12:25.010><c>let </c><00:12:25.235><c>him </c><00:12:25.460><c>call </c><00:12:25.685><c>himself </c><00:12:25.910><c>Allah, </c><00:12:26.135><c>whoever </c><00:12:26.360><c>is </c><00:12:26.585><c>happy </c><00:12:26.810><c>by </c><00:12:27.035><c>saying</c>
+saying Allah, let him call himself Allah, whoever is happy by saying
+saying Allah, let him call himself Allah, whoever is happy by saying
+Hari, <00:12:27.864><c>let </c><00:12:28.408><c>him </c><00:12:28.952><c>call </c><00:12:29.496><c>himself </c><00:12:30.040><c>Hari,</c>
+Hari, let him call himself Hari,
+Hari, let him call himself Hari,
+whoever <00:12:31.217><c>is </c><00:12:31.394><c>happy </c><00:12:31.571><c>by </c><00:12:31.748><c>saying </c><00:12:31.925><c>Jesus </c><00:12:32.102><c>Christ, </c><00:12:32.279><c>let </c><00:12:32.456><c>him </c><00:12:32.633><c>call </c><00:12:32.810><c>himself </c><00:12:32.987><c>Jesus </c><00:12:33.164><c>Christ, </c><00:12:33.341><c>whoever </c><00:12:33.518><c>is </c><00:12:33.695><c>happy </c><00:12:33.872><c>by</c>
+whoever is happy by saying Jesus Christ, let him call himself Jesus Christ, whoever is happy by
+whoever is happy by saying Jesus Christ, let him call himself Jesus Christ, whoever is happy by
+saying <00:12:35.502><c>Guru </c><00:12:35.725><c>Nanak  </c><00:12:35.948><c>Call </c><00:12:36.171><c>him </c><00:12:36.394><c>Guru </c><00:12:36.617><c>Nanak </c><00:12:36.840><c>happy. </c><00:12:37.063><c>There </c><00:12:37.286><c>has </c><00:12:37.509><c>never </c><00:12:37.732><c>been </c><00:12:37.955><c>a</c>
+saying Guru Nanak  Call him Guru Nanak happy. There has never been a
+single <00:12:46.011><c>religion </c><00:12:46.102><c>in </c><00:12:46.193><c>the </c><00:12:46.284><c>history </c><00:12:46.375><c>of </c><00:12:46.466><c>human </c><00:12:46.557><c>life,</c>
+single religion in the history of human life,
+single religion in the history of human life,
+nor <00:12:47.662><c>will </c><00:12:48.004><c>there </c><00:12:48.346><c>ever </c><00:12:48.688><c>be. </c><00:12:49.030><c>It </c><00:12:49.372><c>never </c><00:12:49.714><c>happens </c><00:12:50.056><c>that </c><00:12:50.398><c>the</c>
+nor will there ever be. It never happens that the
+nor will there ever be. It never happens that the
+entire <00:12:50.751><c>world </c><00:12:50.983><c>has </c><00:12:51.215><c>only </c><00:12:51.447><c>one </c><00:12:51.679><c>religion</c>
+entire world has only one religion
+entire world has only one religion
+because <00:12:53.907><c>religion </c><00:12:54.295><c>is </c><00:12:54.683><c>not </c><00:12:55.071><c>based </c><00:12:55.459><c>only </c><00:12:55.847><c>on </c><00:12:56.235><c>God.</c>
+because religion is not based only on God.
+because religion is not based only on God.
+Religion <00:12:57.430><c>is </c><00:12:58.140><c>based </c><00:12:58.850><c>on </c><00:12:59.560><c>society.</c>
+Religion is based on society.
+Religion is based on society.
+As <00:13:01.273><c>the </c><00:13:01.826><c>society </c><00:13:02.379><c>grows </c><00:13:02.932><c>and </c><00:13:03.485><c>progresses, </c><00:13:04.038><c>the</c>
+As the society grows and progresses, the
+As the society grows and progresses, the
+definition <00:13:04.799><c>of </c><00:13:05.319><c>religion </c><00:13:05.839><c>also </c><00:13:06.359><c>keeps </c><00:13:06.879><c>changing.</c>
+definition of religion also keeps changing.
+So <00:13:09.800><c>when </c><00:13:10.120><c>the </c><00:13:10.440><c>entire </c><00:13:10.760><c>world </c><00:13:11.080><c>society </c><00:13:11.400><c>is </c><00:13:11.720><c>different, </c><00:13:12.040><c>when </c><00:13:12.360><c>the</c>
+So when the entire world society is different, when the
+So when the entire world society is different, when the
+languages ​​<00:13:12.710><c>are </c><00:13:12.860><c>different, </c><00:13:13.010><c>then </c><00:13:13.160><c>the </c><00:13:13.310><c>name </c><00:13:13.460><c>of </c><00:13:13.610><c>God </c><00:13:13.760><c>will </c><00:13:13.910><c>definitely </c><00:13:14.060><c>be </c><00:13:14.210><c>different. </c><00:13:14.360><c>The </c><00:13:14.510><c>one</c>
+languages ​​are different, then the name of God will definitely be different. The one
+languages ​​are different, then the name of God will definitely be different. The one
+whom <00:13:17.200><c>you </c><00:13:17.520><c>call </c><00:13:17.840><c>Krishna, </c><00:13:18.160><c>many </c><00:13:18.480><c>call </c><00:13:18.800><c>him </c><00:13:19.120><c>Krishna, </c><00:13:19.440><c>many </c><00:13:19.760><c>call</c>
+whom you call Krishna, many call him Krishna, many call
+him <00:13:23.289><c>Kanhaiya. </c><00:13:23.619><c>Some </c><00:13:23.949><c>will </c><00:13:24.279><c>call </c><00:13:24.609><c>him </c><00:13:24.939><c>Govind, </c><00:13:25.269><c>some </c><00:13:25.599><c>will</c>
+him Kanhaiya. Some will call him Govind, some will
+him Kanhaiya. Some will call him Govind, some will
+call <00:13:26.280><c>him </c><00:13:26.520><c>Gopal, </c><00:13:26.760><c>some </c><00:13:27.000><c>will </c><00:13:27.240><c>call </c><00:13:27.480><c>him </c><00:13:27.720><c>Shamal, </c><00:13:27.960><c>some </c><00:13:28.200><c>will </c><00:13:28.440><c>call </c><00:13:28.680><c>him</c>
+call him Gopal, some will call him Shamal, some will call him
+call him Gopal, some will call him Shamal, some will call him
+Vitthal.
+Vitthal.
+Vitthal.
+Krishna <00:13:32.199><c>will</c>
+Krishna will
+Krishna will
+remain <00:13:33.383><c>the </c><00:13:33.567><c>same, </c><00:13:33.751><c>you </c><00:13:33.935><c>can </c><00:13:34.119><c>give </c><00:13:34.303><c>him </c><00:13:34.487><c>any </c><00:13:34.671><c>name. </c><00:13:34.855><c>If </c><00:13:35.039><c>you</c>
+remain the same, you can give him any name. If you
+remain the same, you can give him any name. If you
+really <00:13:36.607><c>want </c><00:13:37.135><c>to </c><00:13:37.663><c>realize </c><00:13:38.191><c>your </c><00:13:38.719><c>soul,</c>
+really want to realize your soul,
+really want to realize your soul,
+Shankaracharya <00:13:39.457><c>ji </c><00:13:39.874><c>writes, </c><00:13:40.291><c>then </c><00:13:40.708><c>see </c><00:13:41.125><c>the </c><00:13:41.542><c>same </c><00:13:41.959><c>God </c><00:13:42.376><c>in </c><00:13:42.793><c>everyone</c>
+Shankaracharya ji writes, then see the same God in everyone
+and <00:13:47.280><c>seeing </c><00:13:48.440><c>that </c><00:13:49.600><c>God,</c>
+and seeing that God,
+and seeing that God,
+give <00:13:50.031><c>up </c><00:13:50.182><c>all </c><00:13:50.333><c>kinds </c><00:13:50.484><c>of </c><00:13:50.635><c>differences </c><00:13:50.786><c>and </c><00:13:50.937><c>ignorance. </c><00:13:51.088><c>Difference </c><00:13:51.239><c>is </c><00:13:51.390><c>duality. </c><00:13:51.541><c>Duality </c><00:13:51.692><c>has </c><00:13:51.843><c>two </c><00:13:51.994><c>meanings:</c>
+give up all kinds of differences and ignorance. Difference is duality. Duality has two meanings:
+good, <00:14:00.232><c>bad, </c><00:14:01.104><c>happiness, </c><00:14:01.976><c>sorrow, </c><00:14:02.848><c>cold, </c><00:14:03.720><c>hot,</c>
+good, bad, happiness, sorrow, cold, hot,
+good, bad, happiness, sorrow, cold, hot,
+winter, <00:14:05.099><c>heat. </c><00:14:05.679><c>These </c><00:14:06.259><c>are </c><00:14:06.839><c>dualities</c>
+winter, heat. These are dualities
+winter, heat. These are dualities
+[praise].
+[praise].
+[praise].
+How <00:14:09.965><c>are </c><00:14:10.210><c>you </c><00:14:10.455><c>saying </c><00:14:10.700><c>this? </c><00:14:10.945><c>If </c><00:14:11.190><c>you </c><00:14:11.435><c>are</c>
+really <00:14:15.559><c>a </c><00:14:16.359><c>scholar, </c><00:14:17.159><c>then</c>
+really a scholar, then
+really a scholar, then
+why <00:14:17.759><c>were </c><00:14:17.918><c>you </c><00:14:18.077><c>not </c><00:14:18.236><c>born </c><00:14:18.395><c>with </c><00:14:18.554><c>a </c><00:14:18.713><c>book? </c><00:14:18.872><c>Kabir </c><00:14:19.031><c>ji </c><00:14:19.190><c>had</c>
+why were you not born with a book? Kabir ji had
+why were you not born with a book? Kabir ji had
+said this. He said that the
+said this. He said that the
+said this. He said that the
+difference <00:14:20.850><c>is </c><00:14:21.181><c>only </c><00:14:21.512><c>from </c><00:14:21.843><c>the </c><00:14:22.174><c>outside.  </c><00:14:22.505><c>If </c><00:14:22.836><c>it </c><00:14:23.167><c>had </c><00:14:23.498><c>come </c><00:14:23.829><c>then </c><00:14:24.160><c>the</c>
+difference is only from the outside.  If it had come then the
+difference is only from the outside.  If it had come then the
+scholar <00:14:24.435><c>would </c><00:14:24.550><c>have </c><00:14:24.665><c>been </c><00:14:24.780><c>born </c><00:14:24.895><c>with </c><00:14:25.010><c>the </c><00:14:25.125><c>Vedas, </c><00:14:25.240><c>if </c><00:14:25.355><c>he </c><00:14:25.470><c>had </c><00:14:25.585><c>been </c><00:14:25.700><c>a </c><00:14:25.815><c>weaver </c><00:14:25.930><c>then </c><00:14:26.045><c>he </c><00:14:26.160><c>would </c><00:14:26.275><c>have </c><00:14:26.390><c>been</c>
+scholar would have been born with the Vedas, if he had been a weaver then he would have been
+scholar would have been born with the Vedas, if he had been a weaver then he would have been
+born <00:14:27.240><c>with </c><00:14:27.600><c>the </c><00:14:27.960><c>spinning </c><00:14:28.320><c>wheel,</c>
+born with the spinning wheel,
+born with the spinning wheel,
+but <00:14:29.999><c>everyone </c><00:14:30.239><c>comes </c><00:14:30.479><c>crying, </c><00:14:30.719><c>they </c><00:14:30.959><c>are </c><00:14:31.199><c>connected </c><00:14:31.439><c>by </c><00:14:31.679><c>the </c><00:14:31.919><c>umbilical </c><00:14:32.159><c>cord, </c><00:14:32.399><c>by</c>
+but everyone comes crying, they are connected by the umbilical cord, by
+blood, <00:14:36.337><c>by </c><00:14:36.595><c>the </c><00:14:36.853><c>membrane </c><00:14:37.111><c>of </c><00:14:37.369><c>the </c><00:14:37.627><c>womb </c><00:14:37.885><c>and </c><00:14:38.143><c>other </c><00:14:38.401><c>things, </c><00:14:38.659><c>they </c><00:14:38.917><c>are </c><00:14:39.175><c>lying </c><00:14:39.433><c>down, </c><00:14:39.691><c>they </c><00:14:39.949><c>are</c>
+blood, by the membrane of the womb and other things, they are lying down, they are
+blood, by the membrane of the womb and other things, they are lying down, they are
+coming <00:14:41.779><c>naked </c><00:14:43.159><c>and</c>
+coming naked and
+coming naked and
+crying, <00:14:43.485><c>this </c><00:14:43.650><c>is </c><00:14:43.815><c>the </c><00:14:43.980><c>truth </c><00:14:44.145><c>of </c><00:14:44.310><c>everyone, </c><00:14:44.475><c>so</c>
+crying, this is the truth of everyone, so
+crying, this is the truth of everyone, so
+what <00:14:47.159><c>kind </c><00:14:48.039><c>of</c>
+difference <00:14:50.631><c>is </c><00:14:50.902><c>there, </c><00:14:51.173><c>this </c><00:14:51.444><c>is </c><00:14:51.715><c>a </c><00:14:51.986><c>matter </c><00:14:52.257><c>of </c><00:14:52.528><c>human </c><00:14:52.799><c>ignorance,</c>
+difference is there, this is a matter of human ignorance,
+difference is there, this is a matter of human ignorance,
+this <00:14:54.106><c>white </c><00:14:54.652><c>is </c><00:14:55.198><c>better, </c><00:14:55.744><c>dog </c><00:14:56.290><c>or </c><00:14:56.836><c>black,</c>
+this white is better, dog or black,
+this white is better, dog or black,
+both <00:15:00.079><c>love </c><00:15:00.598><c>the </c><00:15:01.117><c>same, </c><00:15:01.636><c>both</c>
+both love the same, both
+both love the same, both
+eat <00:15:02.192><c>the </c><00:15:02.625><c>same </c><00:15:03.058><c>food, </c><00:15:03.491><c>both </c><00:15:03.924><c>have </c><00:15:04.357><c>the</c>
+eat the same food, both have the
+eat the same food, both have the
+same <00:15:04.600><c>God </c><00:15:04.760><c>in </c><00:15:04.920><c>their </c><00:15:05.080><c>mind, </c><00:15:05.240><c>so </c><00:15:05.400><c>what </c><00:15:05.560><c>kind </c><00:15:05.720><c>of</c>
+same God in their mind, so what kind of
+same God in their mind, so what kind of
+difference <00:15:08.600><c>is </c><00:15:10.600><c>there,</c>
+difference is there,
+difference is there,
+destroy <00:15:11.057><c>the </c><00:15:11.355><c>difference </c><00:15:11.653><c>from </c><00:15:11.951><c>all </c><00:15:12.249><c>perspectives, </c><00:15:12.547><c>in </c><00:15:12.845><c>all </c><00:15:13.143><c>ways, </c><00:15:13.441><c>from </c><00:15:13.739><c>all </c><00:15:14.037><c>sides,</c>
+destroy the difference from all perspectives, in all ways, from all sides,
+destroy the difference from all perspectives, in all ways, from all sides,
+because <00:15:15.779><c>difference </c><00:15:16.159><c>is </c><00:15:16.539><c>a </c><00:15:16.919><c>sign </c><00:15:17.299><c>of </c><00:15:17.679><c>ignorance,</c>
+because difference is a sign of ignorance,
+because difference is a sign of ignorance,
+difference, <00:15:20.273><c>difference </c><00:15:20.826><c>is </c><00:15:21.379><c>beyond </c><00:15:21.932><c>difference </c><00:15:22.485><c>and </c><00:15:23.038><c>non-difference,</c>
+Shatra <00:15:27.340><c>Mitra </c><00:15:28.360><c>Putra</c>
+Shatra Mitra Putra
+Shatra Mitra Putra
+Ma <00:15:30.427><c>Kuru </c><00:15:30.535><c>Yatan </c><00:15:30.643><c>Vigraha </c><00:15:30.751><c>Sandh </c><00:15:30.859><c>Bhava </c><00:15:30.967><c>Sam </c><00:15:31.075><c>Chit </c><00:15:31.183><c>Sarvatra </c><00:15:31.291><c>Tvam </c><00:15:31.399><c>Basi</c>
+Achira, <00:15:43.680><c>if</c>
+Achira, if
+Achira, if
+Vishnu <00:15:46.399><c>says </c><00:15:46.839><c>whether </c><00:15:47.279><c>he </c><00:15:47.719><c>is </c><00:15:48.159><c>your </c><00:15:48.599><c>enemy,</c>
+Vishnu says whether he is your enemy,
+Vishnu says whether he is your enemy,
+friend, <00:15:49.360><c>son </c><00:15:49.920><c>or </c><00:15:50.480><c>brother, </c><00:15:51.040><c>do</c>
+friend, son or brother, do
+friend, son or brother, do
+something <00:15:52.786><c>such </c><00:15:53.092><c>that </c><00:15:53.398><c>neither </c><00:15:53.704><c>make </c><00:15:54.010><c>too </c><00:15:54.316><c>much </c><00:15:54.622><c>alliance </c><00:15:54.928><c>with </c><00:15:55.234><c>them</c>
+something such that neither make too much alliance with them
+something such that neither make too much alliance with them
+nor <00:15:55.840><c>move </c><00:15:56.000><c>too </c><00:15:56.160><c>far </c><00:15:56.320><c>away, </c><00:15:56.480><c>remain</c>
+nor move too far away, remain
+nor move too far away, remain
+equal, <00:15:57.573><c>maintain </c><00:15:57.786><c>equal </c><00:15:57.999><c>mind, </c><00:15:58.212><c>mind </c><00:15:58.425><c>and </c><00:15:58.638><c>heart</c>
+equal, maintain equal mind, mind and heart
+equal, maintain equal mind, mind and heart
+in <00:16:00.146><c>an </c><00:16:00.812><c>equal </c><00:16:01.478><c>state,</c>
+in an equal state,
+in an equal state,
+especially <00:16:04.759><c>if </c><00:16:05.958><c>you</c>
+especially if you
+especially if you
+want <00:16:06.250><c>to </c><00:16:06.460><c>attain </c><00:16:06.670><c>God  </c><00:16:06.880><c>Yes</c>
+want to attain God  Yes
+want to attain God  Yes
+Vishnu, <00:16:09.775><c>if </c><00:16:09.990><c>you </c><00:16:10.205><c>want </c><00:16:10.420><c>to </c><00:16:10.635><c>understand </c><00:16:10.850><c>God, </c><00:16:11.065><c>if </c><00:16:11.280><c>you </c><00:16:11.495><c>want </c><00:16:11.710><c>to </c><00:16:11.925><c>know </c><00:16:12.140><c>your </c><00:16:12.355><c>true</c>
+Vishnu, if you want to understand God, if you want to know your true
+Vishnu, if you want to understand God, if you want to know your true
+nature, <00:16:12.986><c>then </c><00:16:13.292><c>you </c><00:16:13.598><c>will</c>
+nature, then you will
+not
+not
+not
+get <00:16:21.919><c>the </c><00:16:22.079><c>solution </c><00:16:22.239><c>until </c><00:16:22.399><c>you </c><00:16:22.559><c>remain </c><00:16:22.719><c>equanimous. </c><00:16:22.879><c>So, </c><00:16:23.039><c>it </c><00:16:23.199><c>is </c><00:16:23.359><c>absolutely </c><00:16:23.519><c>necessary </c><00:16:23.679><c>to </c><00:16:23.839><c>remain </c><00:16:23.999><c>equanimous</c>
+get the solution until you remain equanimous. So, it is absolutely necessary to remain equanimous
+get the solution until you remain equanimous. So, it is absolutely necessary to remain equanimous
+because <00:16:26.607><c>He </c><00:16:27.054><c>is </c><00:16:27.501><c>equal </c><00:16:27.948><c>in </c><00:16:28.395><c>all.</c>
+A <00:16:31.299><c>sarvasya </c><00:16:31.399><c>prabhu </c><00:16:31.499><c>mata </c><00:16:31.599><c>sarvam</c>
+A sarvasya prabhu mata sarvam
+pravartate, <00:16:36.509><c>I </c><00:16:36.778><c>am </c><00:16:37.047><c>in </c><00:16:37.316><c>all, </c><00:16:37.585><c>everyone </c><00:16:37.854><c>is </c><00:16:38.123><c>in </c><00:16:38.392><c>me,</c>
+pravartate, I am in all, everyone is in me,
+pravartate, I am in all, everyone is in me,
+I <00:16:39.006><c>am </c><00:16:39.412><c>moving </c><00:16:39.818><c>in </c><00:16:40.224><c>everyone. </c><00:16:40.630><c>Shri </c><00:16:41.036><c>Krishna</c>
+I am moving in everyone. Shri Krishna
+I am moving in everyone. Shri Krishna
+says
+says
+says
+[praises], Na main dwesh asti
+[praises], Na main dwesh asti
+[praises], Na main dwesh asti
+na <00:16:45.712><c>priya, </c><00:16:46.225><c>neither </c><00:16:46.738><c>do </c><00:16:47.251><c>I </c><00:16:47.764><c>have </c><00:16:48.277><c>any</c>
+na priya, neither do I have any
+na priya, neither do I have any
+hatred <00:16:49.016><c>towards </c><00:16:49.552><c>anyone, </c><00:16:50.088><c>nor </c><00:16:50.624><c>is </c><00:16:51.160><c>anyone</c>
+hatred towards anyone, nor is anyone
+hatred towards anyone, nor is anyone
+dear <00:16:51.702><c>to </c><00:16:52.085><c>me, </c><00:16:52.468><c>Samoha </c><00:16:52.851><c>sarvabhuteshu </c><00:16:53.234><c>naam </c><00:16:53.617><c>dwesh </c><00:16:54.000><c>na</c>
+dear to me, Samoha sarvabhuteshu naam dwesh na
+dear to me, Samoha sarvabhuteshu naam dwesh na
+priya,
+priya,
+priya,
+Arjun, <00:16:55.500><c>neither </c><00:16:55.721><c>do </c><00:16:55.942><c>I </c><00:16:56.163><c>have </c><00:16:56.384><c>any </c><00:16:56.605><c>hatred </c><00:16:56.826><c>towards </c><00:16:57.047><c>anyone, </c><00:16:57.268><c>nor </c><00:16:57.489><c>is </c><00:16:57.710><c>anyone</c>
+Arjun, neither do I have any hatred towards anyone, nor is anyone
+Arjun, neither do I have any hatred towards anyone, nor is anyone
+dear <00:16:58.000><c>to </c><00:16:58.120><c>me. </c><00:16:58.240><c>To</c>
+dear to me. To
+dear to me. To
+understand <00:17:00.404><c>the </c><00:17:00.849><c>one </c><00:17:01.294><c>who </c><00:17:01.739><c>is </c><00:17:02.184><c>equal </c><00:17:02.629><c>in </c><00:17:03.074><c>all, </c><00:17:03.519><c>you</c>
+understand the one who is equal in all, you
+understand the one who is equal in all, you
+too <00:17:03.855><c>will </c><00:17:03.951><c>have </c><00:17:04.047><c>to </c><00:17:04.143><c>be </c><00:17:04.239><c>equanimous.</c>
+too will have to be equanimous.
+too will have to be equanimous.
+When <00:17:05.520><c>you </c><00:17:05.880><c>become </c><00:17:06.240><c>equanimous, </c><00:17:06.600><c>understanding </c><00:17:06.960><c>will </c><00:17:07.320><c>become </c><00:17:07.680><c>very </c><00:17:08.040><c>easy, </c><00:17:08.400><c>you </c><00:17:08.760><c>will</c>
+When you become equanimous, understanding will become very easy, you will
+When you become equanimous, understanding will become very easy, you will
+get <00:17:11.426><c>it </c><00:17:12.252><c>without </c><00:17:13.078><c>struggle.</c>
+Kaam <00:17:16.879><c>krodha </c><00:17:17.398><c>lobh </c><00:17:17.917><c>moh </c><00:17:18.436><c>kata</c>
+Kaam krodha lobh moh kata
+Kaam krodha lobh moh kata
+manam <00:17:21.919><c>bhavya</c>
+koh <00:17:24.865><c>says, </c><00:17:25.090><c>give </c><00:17:25.315><c>up </c><00:17:25.540><c>Kaam </c><00:17:25.765><c>krodha, </c><00:17:25.990><c>greed </c><00:17:26.215><c>and </c><00:17:26.440><c>attachment. </c><00:17:26.665><c>If </c><00:17:26.890><c>you </c><00:17:27.115><c>give </c><00:17:27.340><c>up </c><00:17:27.565><c>Kaam </c><00:17:27.790><c>krodha,</c>
+koh says, give up Kaam krodha, greed and attachment. If you give up Kaam krodha,
+greed, <00:17:32.050><c>attachment, </c><00:17:32.980><c>then </c><00:17:33.910><c>atmanam </c><00:17:34.840><c>bhavya</c>
+koh, <00:17:38.600><c>then </c><00:17:39.200><c>you </c><00:17:39.800><c>will </c><00:17:40.400><c>move </c><00:17:41.000><c>forward.</c>
+koh, then you will move forward.
+koh, then you will move forward.
+Without <00:17:41.885><c>self-knowledge, </c><00:17:42.330><c>the </c><00:17:42.775><c>fool </c><00:17:43.220><c>will </c><00:17:43.665><c>go </c><00:17:44.110><c>to </c><00:17:44.555><c>hell.</c>
+Without self-knowledge, the fool will go to hell.
+Without self-knowledge, the fool will go to hell.
+But <00:17:46.073><c>those </c><00:17:46.506><c>who </c><00:17:46.939><c>remain </c><00:17:47.372><c>devoid </c><00:17:47.805><c>of </c><00:17:48.238><c>self-knowledge</c>
+But those who remain devoid of self-knowledge
+But those who remain devoid of self-knowledge
+Then <00:17:49.000><c>you </c><00:17:49.400><c>will</c>
+go <00:17:52.972><c>to </c><00:17:53.905><c>hell, </c><00:17:54.838><c>who</c>
+go to hell, who
+go to hell, who
+cannot <00:17:56.149><c>remain </c><00:17:56.458><c>happy </c><00:17:56.767><c>even </c><00:17:57.076><c>after </c><00:17:57.385><c>getting </c><00:17:57.694><c>such </c><00:17:58.003><c>a </c><00:17:58.312><c>beautiful </c><00:17:58.621><c>body, </c><00:17:58.930><c>then </c><00:17:59.239><c>who</c>
+cannot remain happy even after getting such a beautiful body, then who
+cannot remain happy even after getting such a beautiful body, then who
+cannot <00:17:59.585><c>remain </c><00:17:59.850><c>happy </c><00:18:00.115><c>even </c><00:18:00.380><c>after </c><00:18:00.645><c>having </c><00:18:00.910><c>everything </c><00:18:01.175><c>in </c><00:18:01.440><c>life,</c>
+cannot remain happy even after having everything in life,
+cannot remain happy even after having everything in life,
+is <00:18:03.455><c>in </c><00:18:04.070><c>hell </c><00:18:04.685><c>only, </c><00:18:05.300><c>and </c><00:18:05.915><c>what</c>
+is in hell only, and what
+is in hell only, and what
+is <00:18:07.760><c>hell, </c><00:18:08.040><c>this </c><00:18:08.320><c>is </c><00:18:08.600><c>hell </c><00:18:08.880><c>itself,</c>
+so <00:18:11.828><c>learn </c><00:18:12.176><c>to </c><00:18:12.524><c>renounce </c><00:18:12.872><c>your </c><00:18:13.220><c>vices, </c><00:18:13.568><c>learn </c><00:18:13.916><c>to</c>
+so learn to renounce your vices, learn to
+so learn to renounce your vices, learn to
+rise <00:18:15.560><c>above </c><00:18:16.400><c>your </c><00:18:17.240><c>vices, </c><00:18:18.080><c>do</c>
+rise above your vices, do
+rise above your vices, do
+not <00:18:18.546><c>become </c><00:18:18.692><c>a </c><00:18:18.838><c>servant </c><00:18:18.984><c>of </c><00:18:19.130><c>your </c><00:18:19.276><c>vices,</c>
+not become a servant of your vices,
+not become a servant of your vices,
+when <00:18:21.800><c>you </c><00:18:22.240><c>rise </c><00:18:22.680><c>above </c><00:18:23.120><c>vices, </c><00:18:23.560><c>you </c><00:18:24.000><c>will</c>
+when you rise above vices, you will
+when you rise above vices, you will
+attain <00:18:24.960><c>self-knowledge,</c>
+attain self-knowledge,
+attain self-knowledge,
+when <00:18:26.831><c>you </c><00:18:27.262><c>attain </c><00:18:27.693><c>self-knowledge, </c><00:18:28.124><c>you </c><00:18:28.555><c>will</c>
+when you attain self-knowledge, you will
+when you attain self-knowledge, you will
+understand <00:18:30.405><c>your </c><00:18:30.610><c>true </c><00:18:30.815><c>nature, </c><00:18:31.020><c>you </c><00:18:31.225><c>will </c><00:18:31.430><c>have </c><00:18:31.635><c>to</c>
+know <00:18:35.900><c>it, </c><00:18:36.520><c>if </c><00:18:37.140><c>you </c><00:18:37.760><c>really</c>
+know it, if you really
+know it, if you really
+want <00:18:38.320><c>to </c><00:18:38.760><c>attain </c><00:18:39.200><c>God, </c><00:18:39.640><c>whether </c><00:18:40.080><c>you</c>
+want to attain God, whether you
+want to attain God, whether you
+want <00:18:40.530><c>darshan </c><00:18:40.740><c>of </c><00:18:40.950><c>your </c><00:18:41.160><c>deity </c><00:18:41.370><c>or </c><00:18:41.580><c>you </c><00:18:41.790><c>want </c><00:18:42.000><c>samadhi, </c><00:18:42.210><c>you </c><00:18:42.420><c>will </c><00:18:42.630><c>have </c><00:18:42.840><c>to</c>
+want darshan of your deity or you want samadhi, you will have to
+want darshan of your deity or you want samadhi, you will have to
+know <00:18:44.360><c>it,</c>
+all <00:18:49.209><c>doubts </c><00:18:49.578><c>will </c><00:18:49.947><c>go </c><00:18:50.316><c>away, </c><00:18:50.685><c>all </c><00:18:51.054><c>dilemmas </c><00:18:51.423><c>will </c><00:18:51.792><c>end,</c>
+all doubts will go away, all dilemmas will end,
+all doubts will go away, all dilemmas will end,
+all <00:18:52.546><c>questions </c><00:18:53.012><c>will </c><00:18:53.478><c>end</c>
+all questions will end
+all questions will end
+[Praise]
+[Praise]
+[Praise]
+Geeyam <00:18:59.864><c>Geeta </c><00:19:00.088><c>naam </c><00:19:00.312><c>sahasra </c><00:19:00.536><c>dheeyam </c><00:19:00.760><c>Shripati </c><00:19:00.984><c>roop </c><00:19:01.208><c>majas </c><00:19:01.432><c>neyam </c><00:19:01.656><c>sajjan </c><00:19:01.880><c>sange </c><00:19:02.104><c>chittam </c><00:19:02.328><c>deeyam </c><00:19:02.552><c>deen </c><00:19:02.776><c>janae </c><00:19:03.000><c>cha</c>
+Geeyam Geeta naam sahasra dheeyam Shripati roop majas neyam sajjan sange chittam deeyam deen janae cha
+vitam, <00:19:11.267><c>they </c><00:19:11.855><c>say, </c><00:19:12.443><c>hey, </c><00:19:13.031><c>recite </c><00:19:13.619><c>Bhagavad </c><00:19:14.207><c>Geeta, </c><00:19:14.795><c>recite</c>
+vitam, they say, hey, recite Bhagavad Geeta, recite
+vitam, they say, hey, recite Bhagavad Geeta, recite
+Vishnu <00:19:15.385><c>Shastra </c><00:19:15.851><c>naam, </c><00:19:16.317><c>chant </c><00:19:16.783><c>it, </c><00:19:17.249><c>meditate </c><00:19:17.715><c>on</c>
+Vishnu Shastra naam, chant it, meditate on
+Vishnu Shastra naam, chant it, meditate on
+Shripati, <00:19:18.933><c>who </c><00:19:19.426><c>is </c><00:19:19.919><c>Shri </c><00:19:20.412><c>Vishnu, </c><00:19:20.905><c>who </c><00:19:21.398><c>is</c>
+Shripati, who is Shri Vishnu, who is
+Shripati, who is Shri Vishnu, who is
+Shri <00:19:21.794><c>Hari, </c><00:19:22.029><c>who </c><00:19:22.264><c>is </c><00:19:22.499><c>the </c><00:19:22.734><c>Supreme </c><00:19:22.969><c>Being, </c><00:19:23.204><c>who </c><00:19:23.439><c>is </c><00:19:23.674><c>the</c>
+Shri Hari, who is the Supreme Being, who is the
+Shri Hari, who is the Supreme Being, who is the
+Supreme <00:19:28.320><c>Being,</c>
+Supreme Being,
+Supreme Being,
+think <00:19:30.620><c>about </c><00:19:30.840><c>him,</c>
+think about him,
+think about him,
+spend <00:19:33.165><c>your </c><00:19:33.771><c>life </c><00:19:34.377><c>in </c><00:19:34.983><c>him, </c><00:19:35.589><c>spend </c><00:19:36.195><c>every</c>
+spend your life in him, spend every
+spend your life in him, spend every
+moment <00:19:36.887><c>of </c><00:19:37.095><c>your </c><00:19:37.303><c>life </c><00:19:37.511><c>in </c><00:19:37.719><c>him</c>
+Engage <00:19:42.333><c>your </c><00:19:42.906><c>mind </c><00:19:43.479><c>and </c><00:19:44.052><c>spend </c><00:19:44.625><c>your </c><00:19:45.198><c>time</c>
+Engage your mind and spend your time
+Engage your mind and spend your time
+in <00:19:46.022><c>the </c><00:19:46.404><c>company </c><00:19:46.786><c>of </c><00:19:47.168><c>noble </c><00:19:47.550><c>men. </c><00:19:47.932><c>Neyam </c><00:19:48.314><c>Sajjan</c>
+in the company of noble men. Neyam Sajjan
+in the company of noble men. Neyam Sajjan
+Sang Chittam Deyam
+Sang Chittam Deyam
+Sang Chittam Deyam
+Dan <00:19:50.349><c>Janaye </c><00:19:50.618><c>Chatam. </c><00:19:50.887><c>By </c><00:19:51.156><c>sharing </c><00:19:51.425><c>with </c><00:19:51.694><c>those </c><00:19:51.963><c>who </c><00:19:52.232><c>are </c><00:19:52.501><c>in </c><00:19:52.770><c>need </c><00:19:53.039><c>and</c>
+Dan Janaye Chatam. By sharing with those who are in need and
+Dan Janaye Chatam. By sharing with those who are in need and
+giving <00:19:54.140><c>to </c><00:19:54.760><c>the </c><00:19:55.380><c>poor, </c><00:19:56.000><c>a</c>
+giving to the poor, a
+giving to the poor, a
+man <00:19:57.530><c>grows </c><00:19:58.100><c>a </c><00:19:58.670><c>lot </c><00:19:59.240><c>by</c>
+giving <00:20:03.146><c>and </c><00:20:03.852><c>receives </c><00:20:04.558><c>more.</c>
+Look <00:20:10.980><c>at </c><00:20:11.600><c>the </c><00:20:12.220><c>law </c><00:20:12.840><c>of </c><00:20:13.460><c>nature, </c><00:20:14.080><c>if</c>
+Look at the law of nature, if
+Look at the law of nature, if
+you <00:20:14.491><c>want </c><00:20:14.662><c>to </c><00:20:14.833><c>take </c><00:20:15.004><c>anything, </c><00:20:15.175><c>you </c><00:20:15.346><c>have </c><00:20:15.517><c>to </c><00:20:15.688><c>give </c><00:20:15.859><c>first. </c><00:20:16.030><c>If</c>
+you want to take anything, you have to give first. If
+you want to take anything, you have to give first. If
+you <00:20:17.782><c>give </c><00:20:18.164><c>seed </c><00:20:18.546><c>to </c><00:20:18.928><c>a </c><00:20:19.310><c>woman, </c><00:20:19.692><c>you </c><00:20:20.074><c>will</c>
+you give seed to a woman, you will
+you give seed to a woman, you will
+get <00:20:21.221><c>a </c><00:20:21.442><c>child; </c><00:20:21.663><c>if </c><00:20:21.884><c>you </c><00:20:22.105><c>give </c><00:20:22.326><c>food </c><00:20:22.547><c>to </c><00:20:22.768><c>the </c><00:20:22.989><c>body, </c><00:20:23.210><c>you </c><00:20:23.431><c>will</c>
+get a child; if you give food to the body, you will
+get a child; if you give food to the body, you will
+get <00:20:25.680><c>satisfaction; </c><00:20:26.000><c>everything </c><00:20:26.320><c>has </c><00:20:26.640><c>to </c><00:20:26.960><c>be </c><00:20:27.280><c>given </c><00:20:27.600><c>first,</c>
+get satisfaction; everything has to be given first,
+get satisfaction; everything has to be given first,
+then <00:20:28.072><c>you </c><00:20:28.264><c>get </c><00:20:28.456><c>something; </c><00:20:28.648><c>if </c><00:20:28.840><c>you</c>
+then you get something; if you
+then you get something; if you
+work, <00:20:31.440><c>you </c><00:20:32.360><c>will</c>
+work, you will
+work, you will
+get <00:20:33.556><c>wealth; </c><00:20:33.792><c>if </c><00:20:34.028><c>you </c><00:20:34.264><c>are </c><00:20:34.500><c>born </c><00:20:34.736><c>in </c><00:20:34.972><c>a </c><00:20:35.208><c>good </c><00:20:35.444><c>family, </c><00:20:35.680><c>you </c><00:20:35.916><c>will</c>
+get wealth; if you are born in a good family, you will
+get wealth; if you are born in a good family, you will
+get <00:20:37.168><c>knowledge; </c><00:20:37.456><c>if </c><00:20:37.744><c>you </c><00:20:38.032><c>serve </c><00:20:38.320><c>a </c><00:20:38.608><c>good </c><00:20:38.896><c>guru, </c><00:20:39.184><c>you </c><00:20:39.472><c>will</c>
+get knowledge; if you serve a good guru, you will
+get knowledge; if you serve a good guru, you will
+get <00:20:40.120><c>self-realization; </c><00:20:40.600><c>first </c><00:20:41.080><c>you </c><00:20:41.560><c>give </c><00:20:42.040><c>something, </c><00:20:42.520><c>then</c>
+get self-realization; first you give something, then
+something <00:21:13.829><c>else </c><00:21:13.859><c>immediately; </c><00:21:13.889><c>nature </c><00:21:13.919><c>keeps </c><00:21:13.949><c>giving </c><00:21:13.979><c>you, </c><00:21:14.009><c>so </c><00:21:14.039><c>learn </c><00:21:14.069><c>to </c><00:21:14.099><c>give. </c><00:21:14.129><c>I </c><00:21:14.159><c>am </c><00:21:14.189><c>not </c><00:21:14.219><c>talking </c><00:21:14.249><c>about </c><00:21:14.279><c>giving </c><00:21:14.309><c>money </c><00:21:14.339><c>only; </c><00:21:14.369><c>or </c><00:21:14.399><c>I </c><00:21:14.429><c>am </c><00:21:14.459><c>not </c><00:21:14.489><c>talking </c><00:21:14.519><c>about </c><00:21:14.549><c>giving </c><00:21:14.579><c>money </c><00:21:14.609><c>at </c><00:21:14.639><c>all; </c><00:21:14.669><c>give </c><00:21:14.699><c>love; </c><00:21:14.729><c>give </c><00:21:14.759><c>feelings; </c><00:21:14.789><c>give </c><00:21:14.819><c>faith; </c><00:21:14.849><c>give </c><00:21:14.879><c>devotion; </c><00:21:14.909><c>speak </c><00:21:14.939><c>sweet </c><00:21:14.969><c>words; </c><00:21:14.999><c>give </c><00:21:15.029><c>happiness </c><00:21:15.059><c>to </c><00:21:15.089><c>someone's </c><00:21:15.119><c>mind; </c><00:21:15.149><c>bring </c><00:21:15.179><c>happiness </c><00:21:15.209><c>in </c><00:21:15.239><c>someone's </c><00:21:15.269><c>life; </c><00:21:15.299><c>you </c><00:21:15.329><c>can </c><00:21:15.359><c>at </c><00:21:15.389><c>least </c><00:21:15.419><c>give </c><00:21:15.449><c>something; </c><00:21:15.479><c>if</c>
+someone <00:21:19.980><c>comes </c><00:21:20.240><c>to </c><00:21:20.500><c>your </c><00:21:20.760><c>house, </c><00:21:21.020><c>you </c><00:21:21.280><c>can </c><00:21:21.540><c>at </c><00:21:21.800><c>least </c><00:21:22.060><c>feed </c><00:21:22.320><c>him</c>
+someone comes to your house, you can at least feed him
+someone comes to your house, you can at least feed him
+[praise]. If you
+[praise]. If you
+[praise]. If you
+cannot <00:21:25.567><c>feed </c><00:21:25.855><c>him, </c><00:21:26.143><c>you </c><00:21:26.431><c>can </c><00:21:26.719><c>at </c><00:21:27.007><c>least </c><00:21:27.295><c>give </c><00:21:27.583><c>him </c><00:21:27.871><c>water; </c><00:21:28.159><c>you</c>
+cannot feed him, you can at least give him water; you
+cannot feed him, you can at least give him water; you
+can <00:21:29.144><c>at </c><00:21:29.448><c>least </c><00:21:29.752><c>give </c><00:21:30.056><c>him </c><00:21:30.360><c>tea; </c><00:21:30.664><c>if </c><00:21:30.968><c>you </c><00:21:31.272><c>cannot </c><00:21:31.576><c>give </c><00:21:31.880><c>him</c>
+can at least give him tea; if you cannot give him
+can at least give him tea; if you cannot give him
+water; <00:21:33.160><c>if </c><00:21:34.240><c>you</c>
+water; if you
+water; if you
+cannot <00:21:35.485><c>give </c><00:21:35.691><c>him </c><00:21:35.897><c>water, </c><00:21:36.103><c>you </c><00:21:36.309><c>can </c><00:21:36.515><c>at </c><00:21:36.721><c>least </c><00:21:36.927><c>ask </c><00:21:37.133><c>him </c><00:21:37.339><c>to </c><00:21:37.545><c>sit </c><00:21:37.751><c>and </c><00:21:37.957><c>that</c>
+cannot give him water, you can at least ask him to sit and that
+cannot give him water, you can at least ask him to sit and that
+too  <00:21:41.367><c>If </c><00:21:41.575><c>you </c><00:21:41.783><c>can't </c><00:21:41.991><c>do </c><00:21:42.199><c>it, </c><00:21:42.407><c>you </c><00:21:42.615><c>can </c><00:21:42.823><c>at </c><00:21:43.031><c>least </c><00:21:43.239><c>ask </c><00:21:43.447><c>to </c><00:21:43.655><c>come </c><00:21:43.863><c>inside. </c><00:21:44.071><c>You</c>
+too  If you can't do it, you can at least ask to come inside. You
+can <00:21:46.013><c>at </c><00:21:46.306><c>least </c><00:21:46.599><c>give </c><00:21:46.892><c>something, </c><00:21:47.185><c>but </c><00:21:47.478><c>you</c>
+can at least give something, but you
+can at least give something, but you
+can't <00:21:49.179><c>give </c><00:21:49.799><c>that </c><00:21:50.419><c>too. </c><00:21:51.039><c>If </c><00:21:51.659><c>you </c><00:21:52.279><c>do</c>
+can't give that too. If you do
+n't <00:21:55.619><c>have </c><00:21:55.959><c>even </c><00:21:56.299><c>that </c><00:21:56.639><c>much </c><00:21:56.979><c>heart. </c><00:21:57.319><c>If </c><00:21:57.659><c>you </c><00:21:57.999><c>can</c>
+n't have even that much heart. If you can
+n't have even that much heart. If you can
+ask <00:21:58.320><c>someone </c><00:21:58.520><c>to </c><00:21:58.720><c>come </c><00:21:58.920><c>inside, </c><00:21:59.120><c>if </c><00:21:59.320><c>you </c><00:21:59.520><c>can </c><00:21:59.720><c>be </c><00:21:59.920><c>hospitable, </c><00:22:00.120><c>then</c>
+you <00:22:04.272><c>are </c><00:22:04.865><c>living </c><00:22:05.458><c>only </c><00:22:06.051><c>for </c><00:22:06.644><c>yourself. </c><00:22:07.237><c>You</c>
+you are living only for yourself. You
+you are living only for yourself. You
+can't <00:22:07.800><c>get </c><00:22:08.000><c>happiness.</c>
+can't get happiness.
+can't get happiness.
+Happiness <00:22:09.131><c>comes </c><00:22:09.343><c>only </c><00:22:09.555><c>to </c><00:22:09.767><c>those </c><00:22:09.979><c>who </c><00:22:10.191><c>are </c><00:22:10.403><c>ready </c><00:22:10.615><c>to </c><00:22:10.827><c>give </c><00:22:11.039><c>happiness. </c><00:22:11.251><c>The </c><00:22:11.463><c>one </c><00:22:11.675><c>who</c>
+Happiness comes only to those who are ready to give happiness. The one who
+Happiness comes only to those who are ready to give happiness. The one who
+can <00:22:14.279><c>give </c><00:22:14.718><c>automatically </c><00:22:15.157><c>becomes </c><00:22:15.596><c>entitled </c><00:22:16.035><c>to </c><00:22:16.474><c>receive </c><00:22:16.913><c>it.</c>
+can give automatically becomes entitled to receive it.
+You <00:22:20.085><c>are </c><00:22:20.530><c>giving </c><00:22:20.975><c>hours </c><00:22:21.420><c>at </c><00:22:21.865><c>work, </c><00:22:22.310><c>you </c><00:22:22.755><c>are</c>
+You are giving hours at work, you are
+You are giving hours at work, you are
+entitled <00:22:23.509><c>to </c><00:22:23.818><c>receive </c><00:22:24.127><c>the </c><00:22:24.436><c>salary. </c><00:22:24.745><c>Or </c><00:22:25.054><c>if </c><00:22:25.363><c>you </c><00:22:25.672><c>don't</c>
+entitled to receive the salary. Or if you don't
+entitled to receive the salary. Or if you don't
+go <00:22:25.906><c>to </c><00:22:26.052><c>work, </c><00:22:26.198><c>what </c><00:22:26.344><c>kind </c><00:22:26.490><c>of </c><00:22:26.636><c>salary </c><00:22:26.782><c>will </c><00:22:26.928><c>you </c><00:22:27.074><c>get?</c>
+Learn <00:22:33.893><c>to </c><00:22:34.306><c>give. </c><00:22:34.719><c>Taking </c><00:22:35.132><c>starts </c><00:22:35.545><c>with </c><00:22:35.958><c>giving.</c>
+Learn to give. Taking starts with giving.
+Learn to give. Taking starts with giving.
+It <00:22:37.519><c>all </c><00:22:37.798><c>starts </c><00:22:38.077><c>with </c><00:22:38.356><c>giving. </c><00:22:38.635><c>Those </c><00:22:38.914><c>who</c>
+give <00:22:41.893><c>time </c><00:22:42.426><c>will </c><00:22:42.959><c>find </c><00:22:43.492><c>stability. </c><00:22:44.025><c>Those </c><00:22:44.558><c>who </c><00:22:45.091><c>give </c><00:22:45.624><c>yoga </c><00:22:46.157><c>will</c>
+give time will find stability. Those who give yoga will
+find <00:22:48.364><c>knowledge. </c><00:22:48.648><c>If </c><00:22:48.932><c>you </c><00:22:49.216><c>give </c><00:22:49.500><c>devotion, </c><00:22:49.784><c>they </c><00:22:50.068><c>will </c><00:22:50.352><c>find </c><00:22:50.636><c>detachment.</c>
+find knowledge. If you give devotion, they will find detachment.
+find knowledge. If you give devotion, they will find detachment.
+First <00:22:51.486><c>you </c><00:22:51.572><c>have </c><00:22:51.658><c>to </c><00:22:51.744><c>give </c><00:22:51.830><c>something. </c><00:22:51.916><c>To</c>
+First you have to give something. To
+First you have to give something. To
+give, <00:22:53.529><c>it </c><00:22:53.779><c>is </c><00:22:54.029><c>not </c><00:22:54.279><c>necessary </c><00:22:54.529><c>that </c><00:22:54.779><c>you </c><00:22:55.029><c>have </c><00:22:55.279><c>that. </c><00:22:55.529><c>All </c><00:22:55.779><c>that </c><00:22:56.029><c>is</c>
+give, it is not necessary that you have that. All that is
+required <00:22:59.220><c>is </c><00:22:59.720><c>just </c><00:23:00.220><c>a </c><00:23:00.720><c>resolution</c>
+required is just a resolution
+required is just a resolution
+that <00:23:01.050><c>I </c><00:23:01.140><c>have </c><00:23:01.230><c>to </c><00:23:01.320><c>give.</c>
+When <00:23:04.329><c>you </c><00:23:04.739><c>take </c><00:23:05.149><c>the </c><00:23:05.559><c>resolution </c><00:23:05.969><c>with </c><00:23:06.379><c>a </c><00:23:06.789><c>pure </c><00:23:07.199><c>heart,</c>
+When you take the resolution with a pure heart,
+When you take the resolution with a pure heart,
+nature <00:23:08.540><c>will </c><00:23:08.880><c>automatically </c><00:23:09.220><c>start </c><00:23:09.560><c>giving </c><00:23:09.900><c>through </c><00:23:10.240><c>you.</c>
+nature will automatically start giving through you.
+nature will automatically start giving through you.
+A <00:23:14.086><c>seed </c><00:23:14.532><c>has </c><00:23:14.978><c>just </c><00:23:15.424><c>a </c><00:23:15.870><c>resolution </c><00:23:16.316><c>that</c>
+A seed has just a resolution that
+A seed has just a resolution that
+I <00:23:16.690><c>have </c><00:23:16.940><c>to </c><00:23:17.190><c>give </c><00:23:17.440><c>fruit.</c>
+I have to give fruit.
+I have to give fruit.
+Nature <00:23:18.920><c>does </c><00:23:19.240><c>everything; </c><00:23:19.560><c>it </c><00:23:19.880><c>makes </c><00:23:20.200><c>it </c><00:23:20.520><c>a</c>
+Nature does everything; it makes it a
+Nature does everything; it makes it a
+tree; <00:23:22.746><c>it </c><00:23:23.652><c>bears </c><00:23:24.558><c>fruit.</c>
+tree; it bears fruit.
+tree; it bears fruit.
+You <00:23:27.010><c>become </c><00:23:27.341><c>a </c><00:23:27.672><c>giver, </c><00:23:28.003><c>nature </c><00:23:28.334><c>will </c><00:23:28.665><c>give </c><00:23:28.996><c>you </c><00:23:29.327><c>the </c><00:23:29.658><c>strength </c><00:23:29.989><c>to </c><00:23:30.320><c>give.</c>
+You become a giver, nature will give you the strength to give.
+On <00:23:33.613><c>the </c><00:23:34.026><c>subject </c><00:23:34.439><c>of </c><00:23:34.852><c>giving  </c><00:23:35.265><c>I </c><00:23:35.678><c>had</c>
+On the subject of giving  I had
+On the subject of giving  I had
+spoken <00:23:36.146><c>in </c><00:23:36.332><c>detail </c><00:23:36.518><c>earlier,</c>
+spoken in detail earlier,
+spoken in detail earlier,
+listen <00:23:37.888><c>to </c><00:23:38.376><c>that </c><00:23:38.864><c>discourse </c><00:23:39.352><c>on </c><00:23:39.840><c>charity</c>
+listen to that discourse on charity
+listen to that discourse on charity
+[praise]. In it
+[praise]. In it
+[praise]. In it
+you <00:23:42.046><c>will </c><00:23:42.492><c>know </c><00:23:42.938><c>who </c><00:23:43.384><c>is </c><00:23:43.830><c>worthy, </c><00:23:44.276><c>to</c>
+you will know who is worthy, to
+you will know who is worthy, to
+whom <00:23:44.586><c>should </c><00:23:44.692><c>one </c><00:23:44.798><c>give,</c>
+but <00:23:48.780><c>give </c><00:23:49.120><c>your </c><00:23:49.460><c>love </c><00:23:49.800><c>to </c><00:23:50.140><c>everyone, </c><00:23:50.480><c>give</c>
+but give your love to everyone, give
+but give your love to everyone, give
+good <00:23:52.290><c>words, </c><00:23:52.980><c>sweet </c><00:23:53.670><c>words </c><00:23:54.360><c>to</c>
+good words, sweet words to
+good words, sweet words to
+everyone, give whatever you
+can <00:23:58.089><c>give </c><00:23:58.738><c>to </c><00:23:59.387><c>everyone, </c><00:24:00.036><c>but</c>
+can give to everyone, but
+can give to everyone, but
+never <00:24:00.612><c>give </c><00:24:00.864><c>some </c><00:24:01.116><c>things, </c><00:24:01.368><c>do </c><00:24:01.620><c>not </c><00:24:01.872><c>give </c><00:24:02.124><c>your </c><00:24:02.376><c>anger </c><00:24:02.628><c>to </c><00:24:02.880><c>anyone,</c>
+never give some things, do not give your anger to anyone,
+learn <00:24:04.776><c>to </c><00:24:05.352><c>keep </c><00:24:05.928><c>it </c><00:24:06.504><c>to </c><00:24:07.080><c>yourself,</c>
+learn to keep it to yourself,
+learn to keep it to yourself,
+learn <00:24:09.772><c>to </c><00:24:09.944><c>conquer </c><00:24:10.116><c>it, </c><00:24:10.288><c>give </c><00:24:10.460><c>up </c><00:24:10.632><c>your </c><00:24:10.804><c>greed, </c><00:24:10.976><c>do </c><00:24:11.148><c>not </c><00:24:11.320><c>give</c>
+learn to conquer it, give up your greed, do not give
+learn to conquer it, give up your greed, do not give
+greed <00:24:13.659><c>to </c><00:24:14.078><c>anyone, </c><00:24:14.497><c>do </c><00:24:14.916><c>not</c>
+give <00:24:19.423><c>pain </c><00:24:20.047><c>to </c><00:24:20.671><c>anyone, </c><00:24:21.295><c>this </c><00:24:21.919><c>is</c>
+give pain to anyone, this is
+give pain to anyone, this is
+not <00:24:22.160><c>a </c><00:24:22.320><c>thing </c><00:24:22.480><c>worth </c><00:24:22.640><c>giving </c><00:24:22.800><c>in </c><00:24:22.960><c>charity</c>
+not a thing worth giving in charity
+not a thing worth giving in charity
+because <00:24:23.985><c>whatever </c><00:24:24.210><c>you </c><00:24:24.435><c>give, </c><00:24:24.660><c>you </c><00:24:24.885><c>will </c><00:24:25.110><c>get </c><00:24:25.335><c>only </c><00:24:25.560><c>that </c><00:24:25.785><c>much </c><00:24:26.010><c>in </c><00:24:26.235><c>return,</c>
+because whatever you give, you will get only that much in return,
+not <00:24:29.192><c>that </c><00:24:29.504><c>much, </c><00:24:29.816><c>you </c><00:24:30.128><c>will </c><00:24:30.440><c>get </c><00:24:30.752><c>many </c><00:24:31.064><c>times </c><00:24:31.376><c>more </c><00:24:31.688><c>of </c><00:24:32.000><c>it,</c>
+not that much, you will get many times more of it,
+not that much, you will get many times more of it,
+you <00:24:32.919><c>have </c><00:24:33.679><c>to </c><00:24:34.439><c>remember </c><00:24:35.199><c>this,</c>
+you have to remember this,
+you have to remember this,
+then <00:24:35.784><c>you </c><00:24:36.128><c>will </c><00:24:36.472><c>know </c><00:24:36.816><c>the </c><00:24:37.160><c>reality </c><00:24:37.504><c>of </c><00:24:37.848><c>life, </c><00:24:38.192><c>you </c><00:24:38.536><c>will </c><00:24:38.880><c>know</c>
+then you will know the reality of life, you will know
+then you will know the reality of life, you will know
+what <00:24:39.579><c>is </c><00:24:39.918><c>the </c><00:24:40.257><c>real </c><00:24:40.596><c>meaning </c><00:24:40.935><c>of </c><00:24:41.274><c>life,</c>
+what is the real meaning of life,
+what is the real meaning of life,
+how <00:24:41.847><c>to </c><00:24:42.174><c>live </c><00:24:42.501><c>life </c><00:24:42.828><c>in </c><00:24:43.155><c>reality,</c>
+how to live life in reality,
+how to live life in reality,
+you <00:24:45.665><c>have </c><00:24:45.970><c>not </c><00:24:46.275><c>brought </c><00:24:46.580><c>anything </c><00:24:46.885><c>with </c><00:24:47.190><c>you, </c><00:24:47.495><c>you </c><00:24:47.800><c>do </c><00:24:48.105><c>not </c><00:24:48.410><c>own </c><00:24:48.715><c>anything</c>
+you have not brought anything with you, you do not own anything
+you have not brought anything with you, you do not own anything
+when <00:24:49.136><c>the </c><00:24:49.353><c>Almighty </c><00:24:49.570><c>is </c><00:24:49.787><c>not </c><00:24:50.004><c>stopping </c><00:24:50.221><c>his </c><00:24:50.438><c>hand </c><00:24:50.655><c>from </c><00:24:50.872><c>giving,</c>
+when the Almighty is not stopping his hand from giving,
+when the Almighty is not stopping his hand from giving,
+who <00:24:51.240><c>are </c><00:24:51.400><c>you </c><00:24:51.560><c>to </c><00:24:51.720><c>stop </c><00:24:51.880><c>your </c><00:24:52.040><c>hand, </c><00:24:52.200><c>what </c><00:24:52.360><c>are </c><00:24:52.520><c>you</c>
+who are you to stop your hand, what are you
+who are you to stop your hand, what are you
+holding <00:24:53.600><c>on </c><00:24:54.320><c>to </c><00:24:55.040><c>stop </c><00:24:55.760><c>it,</c>
+holding on to stop it,
+holding on to stop it,
+what <00:24:56.509><c>are </c><00:24:57.058><c>you </c><00:24:57.607><c>clinging </c><00:24:58.156><c>to</c>
+[praise],
+[praise],
+[praise],
+let <00:25:03.312><c>go, </c><00:25:03.825><c>be </c><00:25:04.338><c>free, </c><00:25:04.851><c>be </c><00:25:05.364><c>independent, </c><00:25:05.877><c>do</c>
+let go, be free, be independent, do
+not <00:25:09.777><c>be </c><00:25:10.034><c>afraid, </c><00:25:10.291><c>the </c><00:25:10.548><c>God </c><00:25:10.805><c>who </c><00:25:11.062><c>has </c><00:25:11.319><c>given </c><00:25:11.576><c>you </c><00:25:11.833><c>food,</c>
+not be afraid, the God who has given you food,
+not be afraid, the God who has given you food,
+clothes, <00:25:12.512><c>shelter </c><00:25:12.625><c>and </c><00:25:12.738><c>medicine </c><00:25:12.851><c>till </c><00:25:12.964><c>date </c><00:25:13.077><c>will </c><00:25:13.190><c>give </c><00:25:13.303><c>it </c><00:25:13.416><c>to </c><00:25:13.529><c>you </c><00:25:13.642><c>in </c><00:25:13.755><c>future </c><00:25:13.868><c>also</c>
+clothes, shelter and medicine till date will give it to you in future also
+clothes, shelter and medicine till date will give it to you in future also
+[praise], do not
+[praise], do not
+[praise], do not
+hold <00:25:18.600><c>on</c>
+hold on
+hold on
+[Praise]
+[Praise]
+[Praise]
+Sit <00:25:22.871><c>down </c><00:25:23.382><c>and </c><00:25:23.893><c>know </c><00:25:24.404><c>that </c><00:25:24.915><c>like </c><00:25:25.426><c>every </c><00:25:25.937><c>thing, </c><00:25:26.448><c>be </c><00:25:26.959><c>it</c>
+Sit down and know that like every thing, be it
+Sit down and know that like every thing, be it
+medicine <00:25:28.373><c>or </c><00:25:29.506><c>food </c><00:25:30.639><c>item,</c>
+medicine or food item,
+medicine or food item,
+it <00:25:31.167><c>becomes </c><00:25:31.334><c>unusable </c><00:25:31.501><c>after </c><00:25:31.668><c>a </c><00:25:31.835><c>certain </c><00:25:32.002><c>date. </c><00:25:32.169><c>It </c><00:25:32.336><c>expires. </c><00:25:32.503><c>It </c><00:25:32.670><c>has </c><00:25:32.837><c>an</c>
+it becomes unusable after a certain date. It expires. It has an
+it becomes unusable after a certain date. It expires. It has an
+expiry <00:25:33.840><c>date. </c><00:25:34.240><c>It </c><00:25:34.640><c>has </c><00:25:35.040><c>a </c><00:25:35.440><c>use-</c>
+expiry date. It has a use-
+expiry date. It has a use-
+by <00:25:37.000><c>date.</c>
+Similarly, <00:25:39.860><c>you </c><00:25:40.280><c>too </c><00:25:40.700><c>have </c><00:25:41.120><c>an </c><00:25:41.540><c>expiry </c><00:25:41.960><c>date.</c>
+Similarly, you too have an expiry date.
+Similarly, you too have an expiry date.
+Before <00:25:43.520><c>that, </c><00:25:44.080><c>give </c><00:25:44.640><c>whatever </c><00:25:45.200><c>you </c><00:25:45.760><c>have </c><00:25:46.320><c>to </c><00:25:46.880><c>give.</c>
+Before that, give whatever you have to give.
+Before that, give whatever you have to give.
+Do <00:25:47.416><c>whatever </c><00:25:47.632><c>you </c><00:25:47.848><c>have </c><00:25:48.064><c>to </c><00:25:48.280><c>do </c><00:25:48.496><c>before </c><00:25:48.712><c>that. </c><00:25:48.928><c>Then </c><00:25:49.144><c>you </c><00:25:49.360><c>will </c><00:25:49.576><c>be </c><00:25:49.792><c>of </c><00:25:50.008><c>no </c><00:25:50.224><c>use. </c><00:25:50.440><c>Just</c>
+Do whatever you have to do before that. Then you will be of no use. Just
+like <00:25:52.694><c>a </c><00:25:52.989><c>box </c><00:25:53.284><c>is </c><00:25:53.579><c>thrown </c><00:25:53.874><c>in </c><00:25:54.169><c>the </c><00:25:54.464><c>dustbin, </c><00:25:54.759><c>the</c>
+like a box is thrown in the dustbin, the
+thing <00:25:56.988><c>in </c><00:25:57.496><c>which </c><00:25:58.004><c>it </c><00:25:58.512><c>is </c><00:25:59.020><c>no </c><00:25:59.528><c>longer </c><00:26:00.036><c>edible</c>
+thing in which it is no longer edible
+thing in which it is no longer edible
+or <00:26:01.919><c>usable.</c>
+or usable.
+or usable.
+Similarly, <00:26:02.964><c>you </c><00:26:03.208><c>too </c><00:26:03.452><c>will </c><00:26:03.696><c>be </c><00:26:03.940><c>thrown </c><00:26:04.184><c>away </c><00:26:04.428><c>one </c><00:26:04.672><c>day. </c><00:26:04.916><c>So</c>
+Similarly, you too will be thrown away one day. So
+Similarly, you too will be thrown away one day. So
+know <00:26:08.560><c>your </c><00:26:10.480><c>life.</c>
+know your life.
+know your life.
+Live <00:26:11.666><c>it </c><00:26:11.852><c>properly. </c><00:26:12.038><c>Be </c><00:26:12.224><c>a </c><00:26:12.410><c>human </c><00:26:12.596><c>being. </c><00:26:12.782><c>Live </c><00:26:12.968><c>like </c><00:26:13.154><c>a </c><00:26:13.340><c>human </c><00:26:13.526><c>being. </c><00:26:13.712><c>Don't</c>
+Live it properly. Be a human being. Live like a human being. Don't
+live <00:26:17.741><c>like </c><00:26:18.002><c>animals. </c><00:26:18.263><c>I </c><00:26:18.524><c>cannot </c><00:26:18.785><c>change </c><00:26:19.046><c>you, </c><00:26:19.307><c>I </c><00:26:19.568><c>can </c><00:26:19.829><c>only </c><00:26:20.090><c>say </c><00:26:20.351><c>that</c>
+live like animals. I cannot change you, I can only say that
+live like animals. I cannot change you, I can only say that
+if <00:26:20.896><c>it </c><00:26:21.233><c>suits </c><00:26:21.570><c>you, </c><00:26:21.907><c>you </c><00:26:22.244><c>can </c><00:26:22.581><c>accept </c><00:26:22.918><c>it.</c>
+if it suits you, you can accept it.
+This <00:26:25.506><c>is </c><00:26:25.932><c>the </c><00:26:26.358><c>truth </c><00:26:26.784><c>of </c><00:26:27.210><c>human </c><00:26:27.636><c>life.</c>
+This is the truth of human life.
+This is the truth of human life.
+Chant <00:26:29.336><c>Govindam. </c><00:26:29.873><c>Chant </c><00:26:30.410><c>Govindam </c><00:26:30.947><c>Govindam. </c><00:26:31.484><c>Bhaj </c><00:26:32.021><c>mood </c><00:26:32.558><c>mate</c>
+Chant Govindam. Chant Govindam Govindam. Bhaj mood mate
+Chant Govindam. Chant Govindam Govindam. Bhaj mood mate
+samprapti <00:26:33.760><c>sate </c><00:26:34.200><c>maran </c><00:26:34.640><c>nahi </c><00:26:35.080><c>rakshati </c><00:26:35.520><c>daak </c><00:26:35.960><c>kar.</c>
+samprapti sate maran nahi rakshati daak kar.
+samprapti sate maran nahi rakshati daak kar.
+Chant <00:26:38.640><c>Govinda.</c>
+Chant Govinda.
+Chant Govinda.
+A <00:26:41.106><c>moment </c><00:26:41.852><c>is </c><00:26:42.598><c>passing.</c>
+A moment is passing.
+A moment is passing.
+A
+A
+A
+moment. <00:26:46.991><c>There </c><00:26:47.303><c>is </c><00:26:47.615><c>a </c><00:26:47.927><c>beautiful </c><00:26:48.239><c>hymn </c><00:26:48.551><c>in </c><00:26:48.863><c>Bengali, </c><00:26:49.175><c>one </c><00:26:49.487><c>of </c><00:26:49.799><c>its</c>
+moment. There is a beautiful hymn in Bengali, one of its
+moment. There is a beautiful hymn in Bengali, one of its
+lines is
+lines is
+lines is
+Kamal <00:26:52.866><c>daal </c><00:26:53.372><c>jal </c><00:26:53.878><c>jeevan </c><00:26:54.384><c>tal </c><00:26:54.890><c>man </c><00:26:55.396><c>baj </c><00:26:55.902><c>Hari </c><00:26:56.408><c>pad </c><00:26:56.914><c>neeti</c>
+Kamal daal jal jeevan tal man baj Hari pad neeti
+Kamal daal jal jeevan tal man baj Hari pad neeti
+re
+re
+re
+nitya.  <00:26:59.340><c>Worship </c><00:26:59.680><c>Hari </c><00:27:00.020><c>every </c><00:27:00.360><c>day</c>
+nitya.  Worship Hari every day
+nitya.  Worship Hari every day
+because <00:27:02.426><c>life </c><00:27:02.892><c>is </c><00:27:03.358><c>moving </c><00:27:03.824><c>very </c><00:27:04.290><c>fast. </c><00:27:04.756><c>The</c>
+because life is moving very fast. The
+because life is moving very fast. The
+essence <00:27:06.834><c>of </c><00:27:07.308><c>your </c><00:27:07.782><c>30 </c><00:27:08.256><c>years </c><00:27:08.730><c>or </c><00:27:09.204><c>your </c><00:27:09.678><c>40 </c><00:27:10.152><c>years.</c>
+essence of your 30 years or your 40 years.
+essence of your 30 years or your 40 years.
+Suppose <00:27:12.712><c>you </c><00:27:13.104><c>have </c><00:27:13.496><c>spent </c><00:27:13.888><c>40 </c><00:27:14.280><c>years </c><00:27:14.672><c>of </c><00:27:15.064><c>your </c><00:27:15.456><c>life, </c><00:27:15.848><c>do </c><00:27:16.240><c>you</c>
+Suppose you have spent 40 years of your life, do you
+know <00:27:19.080><c>what </c><00:27:19.640><c>is </c><00:27:20.200><c>its </c><00:27:20.760><c>essence?</c>
+know what is its essence?
+know what is its essence?
+You <00:27:23.720><c>ate</c>
+You ate
+You ate
+every <00:27:26.055><c>day, </c><00:27:26.390><c>you </c><00:27:26.725><c>slept </c><00:27:27.060><c>every </c><00:27:27.395><c>day,</c>
+every day, you slept every day,
+every day, you slept every day,
+you <00:27:30.244><c>enjoyed </c><00:27:30.689><c>sometimes, </c><00:27:31.134><c>you </c><00:27:31.579><c>acquired </c><00:27:32.024><c>knowledge, </c><00:27:32.469><c>you </c><00:27:32.914><c>earned</c>
+you enjoyed sometimes, you acquired knowledge, you earned
+you enjoyed sometimes, you acquired knowledge, you earned
+money,
+money,
+money,
+apart <00:27:36.853><c>from </c><00:27:37.066><c>this, </c><00:27:37.279><c>what </c><00:27:37.492><c>did </c><00:27:37.705><c>you </c><00:27:37.918><c>do?</c>
+apart from this, what did you do?
+apart from this, what did you do?
+Look <00:27:39.439><c>at </c><00:27:40.118><c>yourself </c><00:27:40.797><c>and</c>
+Look at yourself and
+Look at yourself and
+know <00:27:42.053><c>yourself. </c><00:27:42.346><c>You </c><00:27:42.639><c>spent </c><00:27:42.932><c>40 </c><00:27:43.225><c>years </c><00:27:43.518><c>in </c><00:27:43.811><c>these </c><00:27:44.104><c>four-five </c><00:27:44.397><c>things.</c>
+know yourself. You spent 40 years in these four-five things.
+know yourself. You spent 40 years in these four-five things.
+Why? <00:27:50.413><c>Who </c><00:27:50.946><c>told </c><00:27:51.479><c>you?</c>
+Why? Who told you?
+Why? Who told you?
+Maybe <00:27:53.926><c>no </c><00:27:54.372><c>one </c><00:27:54.818><c>told </c><00:27:55.264><c>you, </c><00:27:55.710><c>but </c><00:27:56.156><c>you</c>
+Maybe no one told you, but you
+Maybe no one told you, but you
+yourself <00:27:56.417><c>did </c><00:27:56.555><c>not </c><00:27:56.693><c>think </c><00:27:56.831><c>about </c><00:27:56.969><c>it, </c><00:27:57.107><c>did </c><00:27:57.245><c>not </c><00:27:57.383><c>know </c><00:27:57.521><c>it, </c><00:27:57.659><c>did </c><00:27:57.797><c>not</c>
+yourself did not think about it, did not know it, did not
+yourself did not think about it, did not know it, did not
+consider <00:27:58.442><c>it. </c><00:27:58.564><c>You </c><00:27:58.686><c>just </c><00:27:58.808><c>kept </c><00:27:58.930><c>running, </c><00:27:59.052><c>kept </c><00:27:59.174><c>running, </c><00:27:59.296><c>kept </c><00:27:59.418><c>running </c><00:27:59.540><c>like </c><00:27:59.662><c>ants, </c><00:27:59.784><c>like </c><00:27:59.906><c>flies, </c><00:28:00.028><c>like</c>
+consider it. You just kept running, kept running, kept running like ants, like flies, like
+bees, <00:28:03.306><c>just </c><00:28:04.132><c>kept </c><00:28:04.958><c>collecting.</c>
+bees, just kept collecting.
+bees, just kept collecting.
+I <00:28:05.930><c>just </c><00:28:06.341><c>keep </c><00:28:06.752><c>doing </c><00:28:07.163><c>it, </c><00:28:07.574><c>keep </c><00:28:07.985><c>doing </c><00:28:08.396><c>it,</c>
+I just keep doing it, keep doing it,
+I just keep doing it, keep doing it,
+maybe <00:28:09.153><c>this </c><00:28:09.586><c>is </c><00:28:10.019><c>my </c><00:28:10.452><c>truth. </c><00:28:10.885><c>Seeing </c><00:28:11.318><c>someone's</c>
+maybe this is my truth. Seeing someone's
+maybe this is my truth. Seeing someone's
+glitter <00:28:11.649><c>and </c><00:28:11.899><c>brilliance, </c><00:28:12.149><c>I </c><00:28:12.399><c>got </c><00:28:12.649><c>influenced </c><00:28:12.899><c>from </c><00:28:13.149><c>outside. </c><00:28:13.399><c>I</c>
+glitter and brilliance, I got influenced from outside. I
+glitter and brilliance, I got influenced from outside. I
+also <00:28:13.778><c>want </c><00:28:13.916><c>to </c><00:28:14.054><c>become </c><00:28:14.192><c>rich, </c><00:28:14.330><c>I </c><00:28:14.468><c>also </c><00:28:14.606><c>want </c><00:28:14.744><c>to </c><00:28:14.882><c>become </c><00:28:15.020><c>something </c><00:28:15.158><c>big.</c>
+But <00:28:19.431><c>are </c><00:28:19.823><c>you </c><00:28:20.215><c>happy </c><00:28:20.607><c>with </c><00:28:20.999><c>that?</c>
+But are you happy with that?
+But are you happy with that?
+If <00:28:23.312><c>you </c><00:28:23.705><c>are </c><00:28:24.098><c>completely </c><00:28:24.491><c>happy, </c><00:28:24.884><c>then </c><00:28:25.277><c>very</c>
+If you are completely happy, then very
+If you are completely happy, then very
+good. <00:28:25.935><c>Do </c><00:28:26.351><c>not </c><00:28:26.767><c>do </c><00:28:27.183><c>anything </c><00:28:27.599><c>different.</c>
+good. Do not do anything different.
+good. Do not do anything different.
+If <00:28:29.625><c>you </c><00:28:29.930><c>are </c><00:28:30.235><c>not </c><00:28:30.540><c>happy, </c><00:28:30.845><c>then </c><00:28:31.150><c>stop </c><00:28:31.455><c>and </c><00:28:31.760><c>think.</c>
+If you are not happy, then stop and think.
+If you are not happy, then stop and think.
+Stop <00:28:32.413><c>for </c><00:28:32.706><c>a </c><00:28:32.999><c>while, </c><00:28:33.292><c>think </c><00:28:33.585><c>about </c><00:28:33.878><c>it.</c>
+Stop for a while, think about it.
+Stop for a while, think about it.
+Know <00:28:35.530><c>life, </c><00:28:36.340><c>know </c><00:28:37.150><c>its </c><00:28:37.960><c>pricelessness.</c>
+Know life, know its pricelessness.
+Know life, know its pricelessness.
+Know <00:28:38.806><c>its </c><00:28:39.132><c>value, </c><00:28:39.458><c>it </c><00:28:39.784><c>is </c><00:28:40.110><c>priceless. </c><00:28:40.436><c>Who</c>
+Know its value, it is priceless. Who
+Know its value, it is priceless. Who
+knows <00:28:42.706><c>from </c><00:28:43.172><c>which </c><00:28:43.638><c>species </c><00:28:44.104><c>you </c><00:28:44.570><c>have </c><00:28:45.036><c>come,</c>
+knows from which species you have come,
+knows from which species you have come,
+whom <00:28:45.353><c>you </c><00:28:45.506><c>have </c><00:28:45.659><c>made </c><00:28:45.812><c>your </c><00:28:45.965><c>parents. </c><00:28:46.118><c>If</c>
+whom you have made your parents. If
+whom you have made your parents. If
+in <00:28:47.989><c>the </c><00:28:48.218><c>species </c><00:28:48.447><c>of </c><00:28:48.676><c>a </c><00:28:48.905><c>donkey, </c><00:28:49.134><c>then </c><00:28:49.363><c>the </c><00:28:49.592><c>donkey </c><00:28:49.821><c>must </c><00:28:50.050><c>have </c><00:28:50.279><c>been </c><00:28:50.508><c>your</c>
+in the species of a donkey, then the donkey must have been your
+in the species of a donkey, then the donkey must have been your
+father. <00:28:51.057><c>If </c><00:28:51.315><c>I </c><00:28:51.573><c>came </c><00:28:51.831><c>from </c><00:28:52.089><c>the </c><00:28:52.347><c>species </c><00:28:52.605><c>of </c><00:28:52.863><c>a </c><00:28:53.121><c>dog, </c><00:28:53.379><c>then </c><00:28:53.637><c>the</c>
+father. If I came from the species of a dog, then the
+father. If I came from the species of a dog, then the
+dog <00:28:53.919><c>must </c><00:28:54.118><c>have </c><00:28:54.317><c>been </c><00:28:54.516><c>my </c><00:28:54.715><c>father. </c><00:28:54.914><c>So,</c>
+dog must have been my father. So,
+dog must have been my father. So,
+insects, <00:28:57.679><c>moths,</c>
+insects, moths,
+insects, moths,
+animals, <00:28:59.299><c>aquatic </c><00:28:59.799><c>creatures,</c>
+emerging <00:29:26.484><c>from </c><00:29:26.689><c>the </c><00:29:26.894><c>newly </c><00:29:27.099><c>conscious </c><00:29:27.304><c>species, </c><00:29:27.509><c>by </c><00:29:27.714><c>what</c>
+emerging from the newly conscious species, by what
+emerging from the newly conscious species, by what
+deeds <00:29:30.095><c>did </c><00:29:30.310><c>they </c><00:29:30.525><c>reach </c><00:29:30.740><c>the </c><00:29:30.955><c>human </c><00:29:31.170><c>species? </c><00:29:31.385><c>Have </c><00:29:31.600><c>you</c>
+deeds did they reach the human species? Have you
+deeds did they reach the human species? Have you
+thought <00:29:32.186><c>about </c><00:29:32.693><c>this? </c><00:29:33.200><c>If</c>
+not, <00:29:36.065><c>then </c><00:29:36.410><c>perhaps </c><00:29:36.755><c>now </c><00:29:37.100><c>would </c><00:29:37.445><c>be </c><00:29:37.790><c>an </c><00:29:38.135><c>appropriate </c><00:29:38.480><c>time.</c>
+not, then perhaps now would be an appropriate time.
+not, then perhaps now would be an appropriate time.
+Think <00:29:39.015><c>about </c><00:29:39.310><c>it </c><00:29:39.605><c>and </c><00:29:39.900><c>what </c><00:29:40.195><c>to </c><00:29:40.490><c>do </c><00:29:40.785><c>with </c><00:29:41.080><c>it.</c>
+Think about it and what to do with it.
+Think about it and what to do with it.
+Suppose <00:29:44.205><c>there </c><00:29:44.530><c>are </c><00:29:44.855><c>four </c><00:29:45.180><c>people, </c><00:29:45.505><c>each </c><00:29:45.830><c>of </c><00:29:46.155><c>them </c><00:29:46.480><c>is</c>
+Suppose there are four people, each of them is
+Suppose there are four people, each of them is
+given <00:29:46.773><c>one </c><00:29:46.946><c>thousand </c><00:29:47.119><c>rupees.</c>
+given one thousand rupees.
+given one thousand rupees.
+Maybe <00:29:48.393><c>one </c><00:29:48.706><c>goes </c><00:29:49.019><c>and </c><00:29:49.332><c>spends </c><00:29:49.645><c>it, </c><00:29:49.958><c>the</c>
+Maybe one goes and spends it, the
+Maybe one goes and spends it, the
+second <00:29:51.413><c>goes </c><00:29:51.946><c>and </c><00:29:52.479><c>invests </c><00:29:53.012><c>it, </c><00:29:53.545><c>the </c><00:29:54.078><c>third</c>
+second goes and invests it, the third
+second goes and invests it, the third
+goes <00:29:54.640><c>and </c><00:29:54.840><c>donates </c><00:29:55.040><c>it, </c><00:29:55.240><c>the</c>
+goes and donates it, the
+goes and donates it, the
+fourth <00:29:56.899><c>destroys </c><00:29:57.879><c>it.</c>
+Similarly, <00:30:00.479><c>you </c><00:30:00.838><c>have </c><00:30:01.197><c>been </c><00:30:01.556><c>given </c><00:30:01.915><c>life. </c><00:30:02.274><c>Do</c>
+Similarly, you have been given life. Do
+Similarly, you have been given life. Do
+you <00:30:03.490><c>want </c><00:30:03.980><c>to </c><00:30:04.470><c>destroy </c><00:30:04.960><c>it</c>
+you want to destroy it
+you want to destroy it
+or <00:30:06.753><c>do </c><00:30:07.227><c>you </c><00:30:07.701><c>want </c><00:30:08.175><c>to </c><00:30:08.649><c>uplift </c><00:30:09.123><c>yourself? </c><00:30:09.597><c>Do</c>
+or do you want to uplift yourself? Do
+or do you want to uplift yourself? Do
+you <00:30:11.193><c>want </c><00:30:11.587><c>to </c><00:30:11.981><c>realize </c><00:30:12.375><c>your </c><00:30:12.769><c>own </c><00:30:13.163><c>God, </c><00:30:13.557><c>your</c>
+you want to realize your own God, your
+you want to realize your own God, your
+own <00:30:14.399><c>form,</c>
+own form,
+own form,
+or <00:30:15.604><c>do </c><00:30:15.888><c>you </c><00:30:16.172><c>want </c><00:30:16.456><c>to </c><00:30:16.740><c>spend </c><00:30:17.024><c>this </c><00:30:17.308><c>life </c><00:30:17.592><c>in </c><00:30:17.876><c>enjoyment?</c>
+or do you want to spend this life in enjoyment?
+or do you want to spend this life in enjoyment?
+The <00:30:18.634><c>decision </c><00:30:18.948><c>is </c><00:30:19.262><c>yours, </c><00:30:19.576><c>the </c><00:30:19.890><c>choice </c><00:30:20.204><c>is </c><00:30:20.518><c>yours,</c>
+The decision is yours, the choice is yours,
+The decision is yours, the choice is yours,
+you <00:30:20.895><c>can </c><00:30:21.030><c>do </c><00:30:21.165><c>as </c><00:30:21.300><c>you </c><00:30:21.435><c>like. </c><00:30:21.570><c>This </c><00:30:21.705><c>is </c><00:30:21.840><c>all</c>
+you can do as you like. This is all
+you can do as you like. This is all
+I <00:30:23.979><c>wanted </c><00:30:24.638><c>to </c><00:30:25.297><c>say </c><00:30:25.956><c>in </c><00:30:26.615><c>tomorrow's </c><00:30:27.274><c>stotra.</c>
+I wanted to say in tomorrow's stotra.
+I wanted to say in tomorrow's stotra.
+Let's <00:30:27.539><c>move </c><00:30:27.679><c>ahead</c>
+Let's move ahead
+Let's move ahead
+and <00:30:29.760><c>tomorrow </c><00:30:30.280><c>it </c><00:30:30.800><c>will </c><00:30:31.320><c>conclude.</c>
+and tomorrow it will conclude.
+and tomorrow it will conclude.
+Om <00:30:32.872><c>Purna </c><00:30:33.225><c>Ma </c><00:30:33.578><c>Purna </c><00:30:33.931><c>Madam </c><00:30:34.284><c>Purna </c><00:30:34.637><c>Purna </c><00:30:34.990><c>Mate </c><00:30:35.343><c>Purnas </c><00:30:35.696><c>Purna </c><00:30:36.049><c>Mada </c><00:30:36.402><c>Purna </c><00:30:36.755><c>Meva </c><00:30:37.108><c>Vi</c>
+Om Purna Ma Purna Madam Purna Purna Mate Purnas Purna Mada Purna Meva Vi
+Om Purna Ma Purna Madam Purna Purna Mate Purnas Purna Mada Purna Meva Vi
+Shite
+Shite
+Shite
+Hare <00:30:43.005><c>Krishna  </c><00:30:43.410><c>Hare </c><00:30:43.815><c>Krishna </c><00:30:44.220><c>Krishna </c><00:30:44.625><c>Krishna </c><00:30:45.030><c>Hare </c><00:30:45.435><c>Hare </c><00:30:45.840><c>Hare</c>
+Hare Krishna  Hare Krishna Krishna Krishna Hare Hare Hare
+Hare Krishna  Hare Krishna Krishna Krishna Hare Hare Hare
+Rama <00:30:47.119><c>Hare </c><00:30:47.679><c>Rama </c><00:30:48.239><c>Rama </c><00:30:48.799><c>Rama </c><00:30:49.359><c>Hare </c><00:30:49.919><c>Hare </c><00:30:50.479><c>Hari </c><00:30:51.039><c>Om</c>
+Rama Hare Rama Rama Rama Hare Hare Hari Om
+Rama Hare Rama Rama Rama Hare Hare Hari Om
+Tatsat <00:30:52.205><c>Hari </c><00:30:52.851><c>Om </c><00:30:53.497><c>Tatsat </c><00:30:54.143><c>Hari </c><00:30:54.789><c>Om </c><00:30:55.435><c>Tatsat</c>
+Tatsat Hari Om Tatsat Hari Om Tatsat
+Tatsat Hari Om Tatsat Hari Om Tatsat
+[Praise]
